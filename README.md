@@ -1,4 +1,4 @@
-# [tzf](https://github.com/ringsaturn/tzf)'s preprocessed timezone data
+# [tzf](https://github.com/deslittle/tzf)'s preprocessed timezone data
 
 ## Update Data Steps
 
@@ -21,15 +21,15 @@
 
 ## Refer
 
-- Protocol Buffers define: <https://github.com/ringsaturn/tzf/blob/main/pb/tzinfo.proto>
+- Protocol Buffers define: <https://github.com/deslittle/tzf/blob/main/pb/tzinfo.proto>
 - Maintain tools
-  - [`geojson2tzpb`](https://github.com/ringsaturn/tzf/tree/main/cmd/geojson2tzpb)
-  - [`reducetzpb`](https://github.com/ringsaturn/tzf/tree/main/cmd/reducetzpb)
-  - [`compresstzpb`](https://github.com/ringsaturn/tzf/tree/main/cmd/compresstzpb)
-  - [`preindextzpb`](https://github.com/ringsaturn/tzf/tree/main/cmd/preindextzpb)
-- To view data in GeoJSON format(which is more convenient to show on map), see <https://github.com/ringsaturn/tzf-server>
+  - [`geojson2tzpb`](https://github.com/deslittle/tzf/tree/main/cmd/geojson2tzpb)
+  - [`reducetzpb`](https://github.com/deslittle/tzf/tree/main/cmd/reducetzpb)
+  - [`compresstzpb`](https://github.com/deslittle/tzf/tree/main/cmd/compresstzpb)
+  - [`preindextzpb`](https://github.com/deslittle/tzf/tree/main/cmd/preindextzpb)
+- To view data in GeoJSON format(which is more convenient to show on map), see <https://github.com/deslittle/tzf-server>
 
 Usage:
 
-- Go: <https://github.com/ringsaturn/tzf>
-- Rust: <https://github.com/ringsaturn/tzf-rs>
+- Go: <https://github.com/deslittle/tzf>
+- Rust: <https://github.com/deslittle/tzf-rs>
