@@ -1,3 +1,3 @@
-package tzfrel
+package usstates
 
 //go:generate make gen

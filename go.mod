@@ -1,3 +1,3 @@
-module github.com/deslittle/tzf-rel
+module github.com/deslittle/pinpoint-us-states
 
-go 1.18
+go 1.19

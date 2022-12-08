@@ -1,6 +1,2 @@
 *.json
-
-
-# Added by cargo
-
-/target
+*.zip

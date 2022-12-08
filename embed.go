@@ -1,17 +1,17 @@
-package tzfrel
+package usstates
 
 import (
 	_ "embed"
 )
 
-//go:embed combined-with-oceans.pb
+//go:embed us-states.pb
 var FullData []byte
 
-//go:embed combined-with-oceans.reduce.pb
+//go:embed us-states.reduce.pb
 var LiteData []byte
 
-//go:embed combined-with-oceans.reduce.compress.pb
+//go:embed us-states.reduce.compress.pb
 var LiteCompressData []byte
 
-//go:embed combined-with-oceans.reduce.preindex.pb
+//go:embed us-states.reduce.preindex.pb
 var PreindexData []byte

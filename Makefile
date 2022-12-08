@@ -1,15 +1,20 @@
 download:
-	rm *.zip
-	rm *.json
-	wget https://github.com/evansiroky/timezone-boundary-builder/releases/latest/download/timezones-with-oceans.geojson.zip
-	unzip timezones-with-oceans.geojson.zip
+	wget https://www2.census.gov/geo/tiger/TIGER2017//STATE/tl_2017_us_state.zip
+	unzip tl_2017_us_state.zip
 
 install:
-	go install github.com/deslittle/tzf/cmd/geojson2tzpb@latest
-	go install github.com/deslittle/tzf/cmd/reducetzpb@latest
-	go install github.com/deslittle/tzf/cmd/compresstzpb@latest
-	go install github.com/deslittle/tzf/cmd/preindextzpb@latest
+	npm install -g --silent geobuf
+	go install github.com/deslittle/pinpoint/cmd/geojson2locpb@main
+	go install github.com/deslittle/pinpoint/cmd/reducelocpb@main
+	go install github.com/deslittle/pinpoint/cmd/compresslocpb@main
+	go install github.com/deslittle/pinpoint/cmd/preindexlocpb@main
+	go install github.com/deslittle/pinpoint/cmd/preindexlocpb@main
 
 gen: install download
-	geojson2tzpb combined-with-oceans.json | xargs reducetzpb | xargs compresstzpb
-	preindextzpb combined-with-oceans.reduce.pb
+	shp2geobuf tl_2017_us_state.shp > us-states.pbf
+	geobuf2json us-states.pbf > us-states.json
+	geojson2locpb us-states.json | xargs reducelocpb | xargs compresslocpb
+	preindexlocpb us-states.reduce.pb
+
+clean:
+	rm -f *.zip tl_2017*.*
