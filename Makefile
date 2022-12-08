@@ -17,4 +17,4 @@ gen: install download
 	preindexlocpb us-states.reduce.pb
 
 clean:
-	rm -f *.zip tl_2017*.*
+	rm -f *.zip tl_2017*.* *.json
