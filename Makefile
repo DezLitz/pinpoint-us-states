@@ -4,16 +4,18 @@ download:
 
 install:
 	npm install -g --silent geobuf
-	go install github.com/deslittle/pinpoint/cmd/geojson2locpb@main
-	go install github.com/deslittle/pinpoint/cmd/reducelocpb@main
-	go install github.com/deslittle/pinpoint/cmd/compresslocpb@main
-	go install github.com/deslittle/pinpoint/cmd/preindexlocpb@main
-	go install github.com/deslittle/pinpoint/cmd/preindexlocpb@main
+	go install github.com/deslittle/pinpoint/cmd/geojson2locpb@v0.1.0
+	go install github.com/deslittle/pinpoint/cmd/reducelocpb@v0.1.0
+	go install github.com/deslittle/pinpoint/cmd/compresslocpb@v0.1.0
+	go install github.com/deslittle/pinpoint/cmd/preindexlocpb@v0.1.0
+	go install github.com/deslittle/pinpoint/cmd/preindexlocpb@v0.1.0
 
 gen: install download
 	shp2geobuf tl_2017_us_state.shp > us-states.pbf
 	geobuf2json us-states.pbf > us-states.json
-	geojson2locpb us-states.json | xargs reducelocpb | xargs compresslocpb
+	geojson2locpb us-states.json
+	reducelocpb us-states.pb
+	compresslocpb us-states.reduce.pb
 	preindexlocpb us-states.reduce.pb
 
 clean:
