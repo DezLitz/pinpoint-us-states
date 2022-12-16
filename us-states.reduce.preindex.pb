@@ -1,516 +1,509 @@
 
-West Virginia—‰ 
+West Virginiaœ† 
 
-West Virginia˜‡ 
+West Virginiaœ… 
 
 West Virginia™‡ 
 
+West VirginiaÃ 	
+West Virginia›… 
+
+West VirginiaŒÄ 	
 West Virginiaœ‡ 
 
+West VirginiaŒÅ 	
 West VirginiašŠ 
 
-West Virginia—‹ 
+West Virginia›Š 
+
+West Virginiaš‹ 
+
+West Virginia–Š 
+
+West Virginia—Š 
+
+West Virginia˜Œ 
+
+West Virginiaœˆ 
 
 West VirginiaÄ 	
 West Virginia—ˆ 
 
-West Virginiaš‹ 
+West Virginia—‰ 
+
+West Virginia˜‡ 
 
 West Virginia‡ 
 
-West Virginiaœ† 
-
-West Virginiaœˆ 
-
-West Virginia–Š 
-
-West VirginiaÃ 	
-West Virginia—Š 
-
-West VirginiaŒÄ 	
-West Virginia›… 
-
-West Virginia›Š 
-
-West Virginia‡ 
-
-West Virginia˜Œ 
-
 West VirginiaŸ† 
 
-West VirginiaŒÅ 	
-West Virginiaœ… 
-
-Florida“¦ 
-
-Florida‹Ö 	
-Floridaš´ 
-
-Florida•­ 
-
-Florida“¥ 
-
-Florida‹Õ 	
-Florida•© 
-
-Florida—° 
-
-Florida•¨ 
-
-FloridaŒÕ 	
-Florida¦ 
-
-Florida˜² 
-
-Florida‹× 	
-Florida¥ 
-
-Florida¥ 
-
-Florida•« 
-
-Florida¥ 
-
-Florida‹¤ 
-
-Floridašµ 
-
-Florida”¨ 
-
-Floridaˆ¤ 
-
-FloridaÙ 	
-FloridaŠ¤ 
-
-Florida•¬ 
-
-Florida•® 
-
-Florida“§ 
+West Virginia—‹ 
+
+West Virginia‡ 
 
 Florida•¥ 
 
-Florida™² 
-
-Florida‹Ô 	
-FloridaŠÓ 	
-Florida–° 
-
 Florida¥ 
 
-Florida‰¤ 
+Florida‹Ö 	
+Florida™² 
 
-FloridaŒÖ 	
-FloridaŒ¤ 
-
-FloridaØ 	
-Floridaš¯ 
-
-Florida™³ 
-
-Florida—± 
-
-Florida‹Ó 	
-Florida•ª 
-
-Florida’¥ 
-
-FloridaŒØ 	
 Florida‘¥ 
 
-Florida˜© 
+Florida¥ 
 
-Florida¤ 
+Florida•© 
 
-FloridaŒ× 	
-Florida”¥ 
+Florida“¦ 
 
-Florida˜¨ 
+Florida‹Õ 	
+FloridaÙ 	
+Florida¥ 
 
 Floridaš® 
 
+Florida¤ 
+
+FloridaØ 	
+Floridaˆ¤ 
+
+Florida˜² 
+
+Florida•¬ 
+
+Florida—° 
+
+Florida”¨ 
+
+FloridaŒØ 	
+Florida˜© 
+
+Florida‹Ó 	
+Florida¦ 
+
+FloridaŒÕ 	
+Florida“§ 
+
+Florida•­ 
+
+Florida‹¤ 
+
+Florida—± 
+
+Florida’¥ 
+
+Florida˜¨ 
+
+Florida¥ 
+
+FloridaŒ¤ 
+
+Florida‹Ô 	
+Florida•® 
+
+Florida‰¤ 
+
+FloridaŠ¤ 
+
+Floridašµ 
+
+FloridaŒ× 	
+Florida•¨ 
+
+Florida“¥ 
+
+Florida™³ 
+
+Florida‹× 	
+FloridaŒÖ 	
+Florida•ª 
+
+Floridaš¯ 
+
+Florida”¥ 
+
+Florida•« 
+
+FloridaŠÓ 	
 Florida—¥ 
+
+Floridaš´ 
+
+Florida–° 
 
-Illinois‚û 
+IllinoisŠ 
 
-Illinois‚Ã 	
-Illinois€Ä 	
-Illinoisƒû 
-
-Illinoisı 
-
-Illinois„‰ 
-
-Illinois‚Â 	
-Illinois‚Á 	
-Illinois‚À 	
-Illinois@_ 
-Illinois†û 
-
-Illinois@a 
 Illinoisÿÿ 
 
+Illinois€û 
+
+Illinois‚¾ 	
+Illinoisşÿ 
+
+Illinois‚Á 	
 Illinois„‹ 
 
+Illinois‚À 	
+Illinois@_ 
+Illinois„ˆ 
+
 Illinois…û 
-
-Illinoisı„ 
-
-Illinoisıƒ 
-
-Illinoisÿ† 
-
-IllinoisÄ 	
-IllinoisÀ 	
-Illinois‚¾ 	
+
+Illinois@` 
 Illinoisû 
 
 Illinois‚Œ 
 
-IllinoisƒŒ 
+IllinoisÅ 	
+Illinois„Š 
+
+Illinoisı‚ 
 
 Illinois…ˆ 
 
-Illinois€û 
-
-IllinoisÁ 	
-Illinoisşÿ 
-
-IllinoisŠ 
-
-Illinois‚¿ 	
-Illinoisı‚ 
-
-IllinoisÂ 	
-Illinois„û 
-
-Illinois„Š 
-
 Illinoisÿş 
 
-Illinois„ˆ 
+Illinoisıƒ 
+
+Illinois‚û 
+
+Illinois„û 
+
+Illinois‚¿ 	
+Illinoisƒû 
+
+Illinois†û 
+
+Illinois„‰ 
+
+IllinoisÀ 	
+Illinoisÿ† 
+
+IllinoisƒŒ 
 
-Illinois@` 
-IllinoisÅ 	
+Illinois@a 
+Illinois‚Ã 	
+Illinoisı„ 
+
+IllinoisÁ 	
+IllinoisÂ 	
+IllinoisÄ 	
+Illinoisı 
+
+Illinois‚Â 	
+Illinois€Ä 	
+	Minnesotaw¹ 	
+	Minnesotaøë 
+
+	Minnesotaÿå 
+
+	Minnesotaíè 
+
+	Minnesotaúõ 
+
+	Minnesota<[ 
+	Minnesotaw³ 	
+	Minnesotaøè 
+
+	Minnesotawµ 	
+	Minnesota~² 	
+	Minnesotaw° 	
+	Minnesotazº 	
+	Minnesota{¹ 	
+	Minnesota<Y 
+	Minnesotaşä 
+
+	Minnesotax° 	
+	Minnesotav° 	
+	Minnesotaíä 
+
+	Minnesotaxº 	
+	Minnesotaíæ 
+
+	Minnesotaw´ 	
+	Minnesotaìâ 
+
+	Minnesotawº 	
+	Minnesotaöî 
+
+	Minnesotaíâ 
+
+	Minnesotaw¸ 	
+	Minnesotaíç 
+
+	Minnesotaw² 	
+	Minnesotaöì 
+
+	Minnesotaz¸ 	
+	Minnesotaz¹ 	
+	Minnesotaøã 
+
 	Minnesotaz¶ 	
+	Minnesota÷ì 
+
+	Minnesotaw¶ 	
+	Minnesota{± 	
+	Minnesota=Z 
 	Minnesotaíé 
 
-	Minnesotaíç 
-
+	Minnesotaùè 
+
+	Minnesotay± 	
+	Minnesotaz· 	
+	Minnesotayº 	
+	Minnesota{º 	
+	Minnesotaøé 
+
+	Minnesota|º 	
 	Minnesotaöí 
 
-	Minnesotaøã 
+	Minnesotaöğ 
+
+	Minnesotaöñ 
+
+	Minnesotaz± 	
+	Minnesotaw· 	
+	Minnesotaw± 	
+	Minnesotaøê 
 
 	Minnesotaúô 
 
-	Minnesota>Y 
-	Minnesotaşå 
-
-	Minnesotaw¸ 	
-	Minnesotaíä 
-
-	Minnesotaùè 
-
 	Minnesota<\ 
-	Minnesotaöï 
-
-	Minnesotaxº 	
-	Minnesotav° 	
-	Minnesota|º 	
-	Minnesotaw± 	
-	Minnesotaz¹ 	
-	Minnesotaíå 
-
-	Minnesotay± 	
-	Minnesotaw² 	
-	Minnesotaíâ 
-
-	Minnesotaûõ 
-
-	Minnesotaøó 
-
-	Minnesotaøë 
-
-	Minnesota{± 	
-	Minnesota{¹ 	
-	Minnesotaw³ 	
-	Minnesotaÿå 
-
-	Minnesota<Y 
-	Minnesotaöì 
-
-	Minnesotaíæ 
-
-	Minnesotax° 	
-	Minnesotaöñ 
-
-	Minnesota<Z 
-	Minnesota=Y 
-	Minnesotax± 	
-	Minnesotaw¶ 	
 	Minnesotaüæ 
 
-	Minnesota÷ì 
-
 	Minnesotaùó 
-
-	Minnesotaìâ 
-
-	Minnesota=Z 
-	Minnesota<[ 
-	Minnesotaz· 	
-	Minnesotazº 	
-	Minnesotaøè 
-
-	Minnesotaöî 
 
-	Minnesota~² 	
-	Minnesotaw° 	
-	Minnesotaøê 
-
-	Minnesotaw´ 	
-	Minnesotaöğ 
+	Minnesotax± 	
+	Minnesotaøó 
 
-	Minnesotaøé 
-
-	Minnesotayº 	
-	Minnesotawº 	
-	Minnesotaíè 
-
-	Minnesotaw¹ 	
-	Minnesotaz± 	
-	Minnesotawµ 	
-	Minnesotaz¸ 	
-	Minnesotaúõ 
+	Minnesotaöï 
 
-	Minnesotaşä 
+	Minnesotaşå 
+
+	Minnesotaíå 
 
 	Minnesotaíã 
+
+	Minnesota<Z 
+	Minnesotaûõ 
+
+	Minnesota=Y 
+	Minnesota>Y 
+Maryland¦… 
 
-	Minnesotaw· 	
-	Minnesota{º 	
-Maryland§… 
+Maryland“Ä 	
+Maryland§Š 
+
+Maryland¥… 
 
 Maryland¤… 
 
-Maryland§Š 
-
 Maryland¥† 
 
+Maryland“Ã 	
 Maryland£… 
 
-Maryland“Ã 	
-Maryland“Ä 	
-Maryland¥… 
-
-Maryland¦… 
-
-Idaho0] 
-Idaho^½ 	
-Idaho[¸ 	
-IdahoÃó 
+Maryland§… 
+
+Idaho¹ú 
+
+Idaho´ã 
 
 Idahoºï 
-
-Idaho^¼ 	
-Idahoa¼ 	
-Idaho´á 
 
-Idaho¾ó 
+IdahoÀú 
 
-IdahoÁú 
-
-Idaho\¼ 	
-Idaho»ï 
-
-Idaho¿ú 
-
-Idahoµï 
-
-IdahoÂó 
-
-IdahoÁó 
-
-Idaho¶ç 
-
-IdahoZ¹ 	
-Idaho.\ 
-Idaho_¼ 	
 Idahoµì 
-
-Idahoµñ 
-
-Idaho´à 
-
-Idahoµí 
-
+
+Idaho[¸ 	
 Idaho¾ú 
 
-Idaho¾û 
-
-IdahoÂú 
-
-Idaho¼ñ 
-
-Idaho\· 	
-Idaho-] 
-Idaho[· 	
-Idaho´â 
-
-Idaho¸û 
+IdahoÂû 
 
 Idaho¸ú 
 
-Idaho\µ 	
-Idaho[¶ 	
-Idahoµî 
+Idaho^¼ 	
+Idaho/] 
+Idaho´â 
 
 Idahoµğ 
+
+IdahoZ³ 	
+Idaho`¼ 	
+Idaho\µ 	
+Idaho^½ 	
+Idaho´å 
 
-Idaho¹ú 
+Idahoµñ 
+
+Idaho^¹ 	
+Idaho´à 
+
+Idahoµí 
+
+Idahoa¼ 	
+IdahoÂú 
 
-Idaho-^ 
-Idaho³ò 
+Idaho-Z 
+Idaho´ä 
+
+IdahoÁú 
+
+Idaho\· 	
+Idaho.\ 
+Idaho´ñ 
+
+Idaho0] 
+Idaho»ï 
+
+IdahoÀó 
+
+Idaho\¶ 	
+Idaho_¼ 	
+Idaho\¼ 	
+Idahoµï 
+
+Idaho´á 
+
+Idaho]¼ 	
+Idaho[¹ 	
+IdahoZ¹ 	
+IdahoÂó 
 
 Idaho¿ó 
 
-Idaho]¼ 	
-IdahoÂû 
+Idaho]½ 	
+Idahoµå 
+
+IdahoÃó 
+
+Idaho³ò 
+
+Idaho¿ú 
 
-Idaho.] 
-IdahoÀó 
+Idaho-] 
+Idaho¶ç 
 
 IdahoÃú 
-
-Idaho´å 
-
-Idahoµå 
-
-IdahoZ³ 	
-Idaho/] 
-Idaho^¹ 	
-Idaho\¶ 	
-Idaho´ä 
-
-Idaho[¹ 	
-Idaho`¼ 	
-IdahoÀú 
 
-Idaho-Z 
-Idaho´ñ 
+Idaho.] 
+IdahoÁó 
 
-Idaho´ã 
+Idaho¾ó 
+
+Idaho-^ 
+Idaho[¶ 	
+Idahoµî 
+
+Idaho¼ñ 
 
-Idaho]½ 	
-New Hampshire´ø 
-
-New Hampshire³ø 
+Idaho[· 	
+Idaho¾û 
+
+Idaho¸û 
 
 New Hampshire´ö 
 
-New Hampshire³÷ 
+New Hampshire´õ 
 
 New Hampshire³õ 
 
+New Hampshire³÷ 
+
+New Hampshire´ô 
+
 New Hampshire³ö 
 
-New Hampshire´ó 
-
-New Hampshire´õ 
+New Hampshire´ø 
 
 New Hampshire´÷ 
 
-New Hampshire´ô 
-
-North Carolina¦‘ 
-
-North Carolina“” 
-
-North Carolina“É 	
-North Carolina‘ 
-
-North Carolina‘ 
-
-North CarolinaŒÉ 	
-North Carolina”“ 
+New Hampshire³ø 
+
+New Hampshire´ó 
 
 North Carolina›‘ 
 
-North Carolina¦• 
-
-North Carolina’” 
-
-North Carolina›” 
-
-North Carolinaœ‘ 
-
-North CarolinaÉ 	
-North Carolina¦” 
+North Carolina§” 
 
 North Carolina¡˜ 
 
-North CarolinaÉ 	
+North Carolina¡‘ 
+
+North Carolina‹É 	
+North Carolina§‘ 
+
+North Carolina¦• 
+
+North Carolina’É 	
+North Carolina“” 
+
+North Carolinaœ‘ 
+
+North Carolinaš‘ 
+
 North Carolina¨“ 
 
-North CarolinaÊ 	
-North Carolina ‘ 
+North CarolinaÊ 	
+North Carolina™‘ 
 
-North Carolinaš” 
-
-North CarolinaŸ‘ 
-
-North CarolinaŸ– 
-
-North Carolina˜‘ 
-
-North CarolinaÉ 	
-North Carolina¡‘ 
+North Carolina¦‘ 
 
 North Carolina¢‘ 
 
-North Carolina‹É 	
-North Carolina•“ 
+North Carolina›• 
 
 North Carolina£‘ 
 
-North Carolina¥‘ 
+North Carolina“É 	
+North Carolina•“ 
 
-North CarolinaË 	
-North Carolina’É 	
-North CarolinaÊ 	
-North Carolina’Ê 	
-North Carolina™‘ 
+North CarolinaÊ 	
+North CarolinaŸ– 
 
 North CarolinaÊ 	
-North Carolina§” 
+North Carolina¢– 
 
-North Carolina£– 
-
-North Carolina‘Ê 	
-North Carolinaš‘ 
-
-North Carolina›• 
-
-North Carolina‘É 	
-North Carolina¤‘ 
-
-North Carolina§‘ 
+North Carolina’” 
 
 North CarolinaÉ 	
-North Carolina¢– 
-
-Vermont²ñ 
-
-Vermont°õ 
-
-Vermont˜¹ 	
-Vermont°ô 
+North Carolina ‘ 
+
+North CarolinaÉ 	
+North CarolinaË 	
+North CarolinaÉ 	
+North Carolina”“ 
+
+North Carolina‘ 
+
+North Carolina’Ê 	
+North Carolina›” 
+
+North Carolina¥‘ 
+
+North Carolina‘ 
+
+North CarolinaŸ‘ 
+
+North Carolina˜‘ 
+
+North Carolina‘Ê 	
+North Carolina£– 
+
+North CarolinaŒÉ 	
+North Carolina¤‘ 
+
+North Carolina¦” 
+
+North Carolinaš” 
+
+North Carolina‘É 	
+North CarolinaÉ 	
+Vermont±ô 
 
 Vermont±ñ 
 
-Vermont±ô 
-
-Vermont°ñ 
+Vermont°ô 
 
 Vermont°ø 
 
@@ -518,457 +511,470 @@
 
 Vermont°÷ 
 
+Vermont˜¹ 	
+Vermont°õ 
+
 Vermont°ö 
+
+Vermont°ñ 
+
+Vermont²ñ 
+
+Connecticut²ı 
 
 Connecticut°ı 
 
 Connecticut°ş 
 
-Connecticut²ı 
+Connecticut±ş 
 
 Connecticut±ı 
-
-Connecticut±ş 
 
 Delaware©ˆ 
-
-
-New MexicoÒ 
-
-
-New MexicoÒ 
-
-
-New MexicoiÎ 	
-
-New MexicoeÉ 	
-
-New MexicokÎ 	
-
-New MexicoÑ 
-
-
-New MexicojÎ 	
-
-New MexicoÎ 
-
-
-New MexicoÍ 
-
-
-New MexicoÔ 
-
-
-New MexicolÍ 	
-
-New MexicoÊ  
-
-
-New MexicoÔ 
-
-
-New MexicoeÊ 	
-
-New MexicolÊ 	
-
-New MexicoÑ 
-
-
-New Mexico3d 
-
-New MexicoeÏ 	
-
-New MexicoË 
-
-
-New MexicoÖ 
-
-
-New Mexico3f 
-
-New MexicohÎ 	
-
-New MexicoÖ 
-
-
-New MexicoĞ 
-
-
-New MexicoÊ 
-
-
-New Mexico3e 
-
-New MexicoeÌ 	
-
-New MexicolÌ 	
-
-New MexicolÈ 	
-
-New MexicoÕ 
-
-
-New MexicoØ 
-
-
-New MexicoeÍ 	
-
-New MexicoeÈ 	
-
-New Mexico2 
-
-New Mexico4f 
-
-New MexicolË 	
-
-New MexicoÕ 
-
-
-New MexicoÙ 
-
-
-New MexicoÓ 
-
-
-New Mexico× 
-
-
-New MexicoÏ 
-
-
-New MexicolÉ 	
-
-New MexicoÙ 
-
-
-New MexicoÓ 
 
 
 New Mexico× 
 
 
-New Mexico3g 
+New Mexico3d 
+
+New MexicoeÈ 	
+
+New MexicolÎ 	
+
+New MexicoØ 
+
+
+New MexicoÒ 
+
+
+New MexicoË  
+
+
+New MexicoÕ 
+
+
+New Mexico2 
+
+New MexicoÓ 
+
+
+New Mexico4f 
 
 New MexicoĞ 
 
 
-New MexicoË  
-
+New MexicoÑ 
+
 
-New MexicolÎ 	
+New Mexico3e 
 
-New MexicoeË 	
+New MexicokÎ 	
 
-New Mexico5f 
-
-New MexicoÌ 
+New MexicoÙ 
 
 
-New MexicoØ 
+New MexicoÙ 
+
+
+New Mexico5f 
+
+New MexicolÌ 	
+
+New MexicoÊ 
+
+
+New MexicoÔ 
+
+
+New MexicoÎ 
 
 
 New MexicoeÎ 	
 
-California©– 
+New MexicoÖ 
 
 
-CaliforniaŸ 
+New MexicoË 
 
 
-California(` 
+New Mexico3f 
 
-California¸š 
-
-
-Californiaµ“ 
-
-
-California²š 
+New Mexico× 
 
 
-CaliforniaR¿ 	
+New MexicoeÍ 	
 
-California©” 
+New MexicoÊ  
+
+
+New MexicoÔ 
+
+
+New MexicoÏ 
+
+
+New Mexico3g 
+
+New MexicoØ 
+
+
+New MexicoÓ 
 
 
-CaliforniaVÆ 	
+New MexicoeÌ 	
 
-California¸› 
-
+New MexicolË 	
 
-California¸• 
+New MexicoiÎ 	
+
+New MexicoÒ 
 
 
-CaliforniaVÊ 	
+New MexicolÈ 	
 
-California¬Š 
-
+New MexicojÎ 	
 
-California¢ı 
-
-
-Californiaµœ 
-
-
-California¥ 
+New MexicoÌ 
 
 
-CaliforniaQÃ 	
+New MexicoeÉ 	
 
-California¤ı 
-
-
-California¶“ 
-
-
-California³‘ 
-
-
-California£ı 
-
-
-California¡ı 
-
-
-California³œ 
+New MexicoÖ 
 
 
-CaliforniaTÄ 	
+New MexicolÍ 	
 
-California´œ 
-
+New MexicoeË 	
 
-California¦ 
-
-
-California¢ˆ 
+New MexicoĞ 
 
 
-CaliforniaWÊ 	
+New MexicoeÏ 	
 
-CaliforniaŸÿ 
-
-
-California·œ 
+New MexicoÍ 
 
 
-CaliforniaXÈ 	
+New MexicolÊ 	
 
-California¡† 
+New MexicoÑ 
+
+
+New MexicolÉ 	
+
+New MexicohÎ 	
+
+New MexicoeÊ 	
+
+New MexicoÕ 
 
 
 California³š 
 
 
-Californiaªˆ 
-
-
-California)` 
-
-California°˜ 
+California£ı 
 
 
-CaliforniaTÀ 	
+CaliforniaWË 	
 
-California¸œ 
-
-
-CaliforniaSÆ 	
-
-CaliforniaT¿ 	
-
-California©• 
+California¡ı 
 
 
-California´“ 
-
-
-California° 
-
-
-CaliforniaTÁ 	
-
-California«– 
-
-
-CaliforniaRÆ 	
-
-California*c 
-
-California§ 
-
-
-CaliforniaWÇ 	
-
-CaliforniaS¿ 	
-
-Californiaª– 
-
-
-CaliforniaP¿ 	
-
-California¬‹ 
-
-
-CaliforniaYÌ 	
-
-California­— 
+California©” 
 
 
 California­‹ 
 
 
-California£Š 
-
-
-CaliforniaXÉ 	
-
-California¶œ 
-
-
-California,e 
-
-California-f 
-
-California±˜ 
-
-
-California¨ı 
-
-
-California± 
-
-
-California£ˆ 
-
-
-California«‰ 
-
-
-California´’ 
-
-
-CaliforniaTÃ 	
-
-California¸— 
-
-
-CaliforniaVÇ 	
-
-California³› 
-
-
-California¬– 
+California¯ 
 
 
 California¡‡ 
 
 
-California¯ 
-
-
-California©ı 
-
-
-California§‘ 
-
-
-California² 
-
-
-California¹— 
+California´œ 
 
 
-CaliforniaSÇ 	
+CaliforniaVÊ 	
 
-California)a 
-
-California ı 
-
-
-California° 
-
-
-CaliforniaŸ‚ 
+California¯˜ 
 
 
-CaliforniaYÉ 	
+CaliforniaP¿ 	
 
-California-e 
+California§’ 
+
+
+CaliforniaUÊ 	
+
+California¨ı 
+
+
+California¢ˆ 
+
+
+Californiaµ“ 
+
+
+California«‰ 
+
+
+California­– 
+
+
+CaliforniaWÊ 	
+
+California³› 
+
+
+California£Š 
+
+
+California³‘ 
+
+
+CaliforniaQ¿ 	
+
+California)b 
+
+Californiaª– 
+
+
+California²š 
+
+
+California²‘ 
+
+
+California§ 
+
+
+California+d 
+
+California¸› 
+
+
+Californiaªˆ 
+
+
+California©• 
+
 
 California¥ı 
 
 
-California±™ 
-
+CaliforniaŸ 
+
 
-California­– 
-
+CaliforniaVÆ 	
+
+California*c 
+
+California°˜ 
+
+
+CaliforniaTÅ 	
 
 California¦ı 
 
 
-CaliforniaŸ€ 
+California¢ı 
+
+
+California¬– 
+
+
+California¸– 
+
+
+California ı 
+
+
+California-f 
+
+CaliforniaTÃ 	
+
+California® 
 
 
-CaliforniaTÂ 	
+CaliforniaYÌ 	
 
-California§ı 
+California©ı 
 
 
-California§’ 
+California¸• 
+
+
+CaliforniaR¿ 	
+
+California¸š 
 
 
-California¯˜ 
+California¬Š 
+
+
+California¸œ 
+
+
+California­— 
+
+
+California«– 
+
+
+California·œ 
+
+
+California©– 
 
 
 California®Œ 
 
 
-CaliforniaWË 	
+CaliforniaVÇ 	
 
-California® 
+CaliforniaŸÿ 
+
+
+California¦ 
 
+
+California,e 
+
+CaliforniaQÂ 	
 
 California*d 
 
-CaliforniaUÊ 	
+CaliforniaTÀ 	
+
+CaliforniaUÅ 	
+
+CaliforniaXÉ 	
+
+California² 
+
+
+California¬‹ 
+
+
+CaliforniaTÂ 	
+
+California(` 
+
+California° 
+
+
+CaliforniaTÁ 	
+
+California)` 
+
+CaliforniaTÄ 	
+
+California±™ 
+
+
+California¤ı 
+
+
+CaliforniaSÆ 	
+
+California¹— 
+
+
+California´“ 
+
+
+California£ˆ 
+
 
 Californiaª‰ 
 
 
-CaliforniaPÂ 	
+California\Ì 	
 
-California\Ì 	
-
-CaliforniaQ¿ 	
-
-California¸– 
+California± 
 
 
+CaliforniaŸ€ 
+
+
+CaliforniaXÈ 	
+
+California§ı 
+
+
+CaliforniaSÇ 	
+
+California³œ 
+
+
+California´’ 
+
+
+Californiaµœ 
+
+
+California¸— 
+
+
+CaliforniaS¿ 	
+
 California£‰ 
+
+
+California¡† 
 
 
-CaliforniaUÅ 	
+CaliforniaWÇ 	
 
-California+d 
+CaliforniaPÂ 	
 
-California²‘ 
+California¥ 
+
+
+California)a 
+
+CaliforniaRÆ 	
+
+California§‘ 
+
+
+CaliforniaŸ‚ 
+
+
+California-e 
+
+CaliforniaQÃ 	
+
+California° 
 
 
-CaliforniaTÅ 	
+CaliforniaYÉ 	
 
-California)b 
+California¶“ 
+
 
-CaliforniaQÂ 	
+CaliforniaT¿ 	
 
-New Jersey¬€ 
+California±˜ 
+
+
+California¶œ 
+
+
+New Jersey«… 
+
+
+New Jersey¬„ 
 
 
 New Jersey¬ƒ 
 
 
-New Jersey¬„ 
+New Jersey¬€ 
+
+
+New Jersey«„ 
 
 
 New Jersey¬‚ 
@@ -977,3456 +983,3450 @@ New Jersey¬‚
 New Jersey«€ 
 
 
-New Jersey«„ 
-
-
-New Jersey«… 
+New Jersey« 
 
 
 New Jerseyª… 
-
-
-New Jersey« 
-
-	Wisconsin?\ 
-	Wisconsin}¸ 	
-	Wisconsin€¶ 	
-	Wisconsinº 	
-	Wisconsin}µ 	
-	Wisconsin†÷ 
-
-	Wisconsin‚¼ 	
-	Wisconsinıè 
-
-	Wisconsin†ñ 
-
-	Wisconsin¼ 	
-	Wisconsin€· 	
-	Wisconsinƒ¹ 	
-	Wisconsin}· 	
-	Wisconsin‚¹ 	
-	Wisconsinùî 
-
-	Wisconsinşè 
 
 	Wisconsinùí 
 
-	Wisconsinƒ¼ 	
-	Wisconsin?[ 
-	Wisconsin„ï 
-
-	Wisconsin†ö 
-
-	Wisconsinÿø 
-
-	Wisconsinùğ 
-
-	Wisconsin‚í 
-
-	Wisconsin‚» 	
-	Wisconsinıõ 
-
-	Wisconsin@] 
-	Wisconsinƒí 
-
-	Wisconsinƒº 	
-	Wisconsinÿù 
-
 	Wisconsinşë 
-
-	Wisconsin‡ñ 
-
-	Wisconsinşø 
-
-	Wisconsin‚º 	
-	Wisconsinùï 
 
 	Wisconsinüé 
 
-	Wisconsin€¼ 	
-	Wisconsin@\ 
-	Wisconsin„î 
-
-	Wisconsin~µ 	
+	Wisconsin€¶ 	
 	Wisconsin‚¸ 	
-	Wisconsinˆğ 
+	Wisconsinşø 
 
-	Wisconsinıé 
+	Wisconsin‡ñ 
 
-	Wisconsin· 	
-	Wisconsin» 	
+	Wisconsinÿø 
+
+	Wisconsin†÷ 
+
+	Wisconsinÿù 
+
 	Wisconsinûò 
-
-	Wisconsin}¶ 	
+
 	Wisconsinıô 
 
+	Wisconsin‚í 
+
+	Wisconsin}µ 	
+	Wisconsin}¸ 	
+	Wisconsin@] 
+	Wisconsin„ï 
+
+	Wisconsin‚¼ 	
+	Wisconsin» 	
+	Wisconsin€· 	
+	Wisconsin€¼ 	
+	Wisconsinıé 
+
 	Wisconsin„í 
+
+	Wisconsin‚¹ 	
+	Wisconsin?[ 
+	Wisconsin· 	
+	Wisconsin@\ 
+	Wisconsin?\ 
+	Wisconsinˆğ 
+
+	Wisconsinƒ¼ 	
+	Wisconsinşè 
+
+	Wisconsinº 	
+	Wisconsinùï 
+
+	Wisconsin†ö 
+
+	Wisconsinƒ¹ 	
+	Wisconsin}¶ 	
+	Wisconsinùî 
+
+	Wisconsin}· 	
+	Wisconsin~µ 	
+	Wisconsin‚» 	
+	Wisconsinùğ 
+
+	Wisconsin‚º 	
+	Wisconsinıè 
+
+	Wisconsinƒº 	
+	Wisconsin†ñ 
+
+	Wisconsin¼ 	
+	Wisconsinƒí 
+
+	Wisconsin„î 
+
+	Wisconsinıõ 
 
-Oregon*^ 
-OregonP¼ 	
+Oregon. 
+OregonŸû 
+
+Oregon®í 
+
+Oregon²í 
+
+Oregonø 
+
+Oregon±í 
+
+Oregon¥ú 
+
+Oregon+^ 
 Oregon¬í 
 
-Oregon£ï 
+Oregon³î 
 
-OregonŸ÷ 
+OregonŸö 
+
+Oregon. 
+OregonP· 	
+Oregon¯í 
+
+Oregon*^ 
+OregonŸù 
+
+OregonX» 	
+Oregon²î 
+
+Oregon ú 
+
+OregonS¼ 	
+Oregon§ú 
+
+OregonX¹ 	
+Oregon¤ú 
+
+OregonX¼ 	
+OregonV· 	
+Oregon¢ú 
+
+OregonU· 	
+Oregon²û 
 
 Oregon¥ï 
 
-OregonX½ 	
-Oregon. 
-Oregon¥ú 
-
-OregonX¹ 	
-OregonS· 	
-Oregon²ï 
-
-Oregon²í 
-
-OregonXº 	
-Oregon¯í 
-
-OregonX¼ 	
-Oregon°í 
-
-Oregon²î 
-
+OregonT· 	
+OregonR¼ 	
 Oregon²ğ 
-
-Oregon¤ï 
-
-OregonŸù 
-
-Oregon§û 
-
-Oregon¡ú 
-
-Oregon+^ 
-Oregon. 
-Oregon±í 
-
-OregonX¸ 	
-OregonV· 	
-Oregon ú 
-
-OregonŸó 
-
-OregonP· 	
-Oregon¤ú 
-
-Oregon¢ï 
-
-OregonŸø 
-
-OregonT· 	
-OregonŸö 
 
 Oregon­í 
 
-Oregon¦ú 
-
-Oregon£ú 
+Oregon¡ú 
 
-OregonU· 	
-OregonŸõ 
-
-OregonŸû 
-
-OregonŸô 
-
-Oregon¢ú 
-
-Oregon³î 
-
-OregonW· 	
-Oregon²û 
-
-OregonX· 	
-Oregon§ú 
-
-OregonS¼ 	
-OregonP¶ 	
-OregonR¼ 	
-OregonX» 	
+OregonP¼ 	
+OregonS· 	
 OregonŸú 
 
+OregonX½ 	
 OregonQ¼ 	
-Oregonø 
+OregonŸó 
 
-Oregon®í 
-
-NebraskaÜù 
+Oregon§û 
+
+Oregon¢ï 
+
+Oregon£ï 
+
+OregonX¸ 	
+Oregon²ï 
+
+OregonW· 	
+Oregon£ú 
+
+OregonXº 	
+OregonP¶ 	
+OregonŸô 
+
+OregonX· 	
+OregonŸõ 
+
+OregonŸ÷ 
+
+Oregon°í 
+
+Oregon¦ú 
+
+OregonŸø 
+
+Oregon¤ï 
 
 Nebraskaß‚ 
-
+
+Nebraskan¾ 	
+NebraskauÀ 	
+Nebraskaîÿ 
+
+Nebraskam¾ 	
+NebraskarÀ 	
 Nebraskaİù 
 
-NebraskaŞù 
-
-Nebraskaæ‚ 
-
-NebraskaÙù 
-
-NebraskaÚş 
+NebraskaÙû 
 
 NebraskaÙş 
 
-Nebraskaâ‚ 
-
-Nebraskao¿ 	
-Nebraskau½ 	
-Nebraskaá‚ 
-
-Nebraskaæù 
-
-Nebraskaê‚ 
-
-NebraskapÀ 	
-Nebraskam¾ 	
-Nebraskav¾ 	
-NebraskasÀ 	
-NebraskaŞ‚ 
-
-NebraskaqÀ 	
-Nebraskaà‚ 
-
-Nebraskaé‚ 
-
-Nebraskam½ 	
-Nebraskaìû 
-
-Nebraskaë‚ 
-
-Nebraskaçù 
-
-Nebraska8_ 
-Nebraskaåù 
-
 Nebraskaä‚ 
-
+
+Nebraska8_ 
+Nebraska:_ 
 Nebraskaäù 
-
-Nebraskao½ 	
-Nebraska9_ 
+
 NebraskaÜş 
 
-Nebraskaâù 
+NebraskaÙù 
 
-NebraskaÙû 
-
-NebraskatÀ 	
-NebraskavÀ 	
-Nebraska:_ 
-NebraskaÛù 
-
-Nebraskaİş 
-
-Nebraskaè‚ 
-
-Nebraskaãù 
-
-Nebraskaq½ 	
-Nebraskan½ 	
-NebraskaÛş 
-
-Nebraskar½ 	
-Nebraskao¾ 	
-NebraskaÙı 
-
-Nebraskas½ 	
-Nebraskaàù 
-
-Nebraskap½ 	
-Nebraskaì‚ 
-
-NebraskauÀ 	
-NebraskaoÀ 	
-NebraskaÚù 
-
-Nebraskaå‚ 
-
-NebraskaÙú 
+Nebraskaî 
 
 Nebraskaî€ 
+
+Nebraskaç‚ 
+
+NebraskaqÀ 	
+Nebraskaáù 
+
+NebraskaŞ‚ 
+
+Nebraskaq½ 	
+Nebraskaãù 
+
+Nebraskar½ 	
+NebraskaoÀ 	
+Nebraskaã‚ 
+
+Nebraskaé‚ 
+
+NebraskaÛù 
+
+NebraskaŞù 
+
+NebraskaÙı 
+
+Nebraskaìû 
+
+Nebraskaì‚ 
+
+Nebraskaà‚ 
+
+NebraskaÚù 
+
+Nebraskaåù 
+
+Nebraskam½ 	
+NebraskasÀ 	
+Nebraskao¾ 	
+Nebraskaàù 
+
+NebraskaÛş 
+
+Nebraskap½ 	
+Nebraskaí‚ 
+
+Nebraskau½ 	
+NebraskavÀ 	
+Nebraskaİş 
 
 Nebraskaêù 
 
 Nebraskaî‚ 
-
-Nebraskaç‚ 
-
-NebraskaÙü 
 
-NebraskarÀ 	
-Nebraskaáù 
-
+Nebraskao¿ 	
+Nebraskan½ 	
 Nebraskaßù 
+
+Nebraskao½ 	
+NebraskapÀ 	
+Nebraskav¿ 	
+Nebraska9_ 
+NebraskaÙú 
 
-Nebraskaí‚ 
+Nebraskaâ‚ 
 
 Nebraskat½ 	
-Nebraskaî 
-
-Nebraskav¿ 	
-Nebraskaã‚ 
+Nebraskaê‚ 
 
-Nebraskaîÿ 
+Nebraskaâù 
+
+Nebraskaæ‚ 
 
-Nebraskan¾ 	
-Pennsylvania¢ı 
+Nebraskas½ 	
+NebraskaÚş 
+
+Nebraskaæù 
+
+Nebraskaè‚ 
+
+NebraskaÜù 
+
+NebraskatÀ 	
+NebraskaÙü 
+
+Nebraskaå‚ 
+
+Nebraskaë‚ 
+
+Nebraskaá‚ 
+
+Nebraskav¾ 	
+Nebraskaçù 
 
-Pennsylvania§ı 
-
+Pennsylvania¿ 	
+PennsylvaniaH` 
+Pennsylvania¿ 	
 Pennsylvania¤ı 
 
-Pennsylvania£ı 
+Pennsylvaniaı 
 
-Pennsylvaniaı 
-
-Pennsylvania¿ 	
-PennsylvaniaH` 
-Pennsylvania’¿ 	
-Pennsylvania©‚ 
-
-Pennsylvania¦ı 
-
-Pennsylvania¡ı 
+Pennsylvania”¿ 	
+Pennsylvaniaœı 
 
 Pennsylvania¨ı 
 
-Pennsylvania¿ 	
-Pennsylvaniaı 
-
-PennsylvaniaI` 
-Pennsylvania‘¿ 	
-Pennsylvania ı 
+Pennsylvania¨ƒ 
 
-Pennsylvania©ı 
+Pennsylvania¡ı 
 
 Pennsylvania¨€ 
 
-Pennsylvania¨ƒ 
-
-PennsylvaniaG` 
-Pennsylvaniaœı 
+Pennsylvania ı 
 
-Pennsylvania¨‚ 
+Pennsylvania“¿ 	
+Pennsylvaniaı 
 
-Pennsylvania”¿ 	
+Pennsylvania¦ı 
+
 PennsylvaniaŸı 
 
-Pennsylvania¿ 	
+Pennsylvania§ı 
+
 Pennsylvania¨ 
 
+Pennsylvania’¿ 	
 Pennsylvania¥ı 
+
+PennsylvaniaI` 
+Pennsylvania¢ı 
 
-Pennsylvania“¿ 	
-
-Washington¤ì 
+Pennsylvania‘¿ 	
+Pennsylvania£ı 
 
-
-Washingtonã 
-
-
-Washington)Z 
-
-Washington£ì 
-
-
-Washington£ê 
-
-
-Washington£à 
-
-
-Washington(Y 
-
-Washington¥ì 
+PennsylvaniaG` 
+Pennsylvania©‚ 
+
+Pennsylvania¿ 	
+Pennsylvania¨‚ 
+
+Pennsylvania©ı 
 
 
-WashingtonX² 	
+WashingtonX± 	
+
+Washington¢ê 
+
+
+Washington¤ì 
+
+
+Washington)Z 
+
+Washington)X 
+
+Washington¡ê 
+
+
+WashingtonŸç 
+
+
+Washington¦ì 
+
+
+Washington§ì 
+
 
 Washington+Z 
 
-Washington£á 
+WashingtonŸæ 
 
 
 Washington¨ì 
 
 
-Washington ê 
-
-
-WashingtonŸè 
-
-
-WashingtonQ´ 	
-
-Washington¦ì 
-
-
-Washington, 
-
-Washington£ë 
-
-
-WashingtonŸå 
-
-
-WashingtonXµ 	
-
-Washington)X 
-
-Washington¢ê 
-
-
-WashingtonP´ 	
-
-WashingtonX° 	
-
-Washington)Y 
-
-Washington©ì 
-
-
 Washingtonä 
 
 
-WashingtonŸæ 
-
+Washington£ì 
+
 
-Washington§ì 
-
+Washington(Y 
 
-WashingtonX´ 	
+WashingtonX´ 	
 
-Washington¢á 
-
+WashingtonP´ 	
+
+WashingtonX² 	
+
+WashingtonŸå 
+
+
+Washington)Y 
+
+WashingtonX³ 	
 
 WashingtonŸä 
-
+
 
-WashingtonX± 	
-
-WashingtonŸç 
+Washington£à 
 
 
 Washington*Z 
 
-Washington¡ê 
+Washington£ê 
 
+
+WashingtonQ´ 	
+
+WashingtonX° 	
+
+Washington¢á 
+
+
+Washington£á 
+
+
+Washington©ì 
+
+
+Washington¥ì 
+
+
+WashingtonŸè 
+
+
+Washingtonã 
+
+
+Washington£ë 
+
+
+Washington, 
 
 WashingtonQ± 	
 
-WashingtonX³ 	
-	Louisianaş¨ 
-
-	LouisianaõŸ 
-
-	Louisianaö 
-
-	Louisiana{Ï 	
-	Louisiana÷ 
-
-	Louisianaù 
-
-	Louisiana§ 
-
-	Louisianaõ 
-
-	Louisianaø¦ 
-
-	Louisianaú  
-
-	Louisiana}Ò 	
-	Louisiana÷¦ 
-
-	Louisianaù¦ 
-
-	Louisianaú¢ 
-
-	Louisianaÿ¨ 
-
-	Louisiana|Ñ 	
-	Louisiana÷¢ 
-
-	Louisianaú 
-
-	Louisiana€§ 
-
-	Louisianaû§ 
-
-	Louisianaû¦ 
-
-	Louisianaõ 
-
-	Louisiana?i 
-	Louisianaı¨ 
-
-	Louisiana|Ğ 	
-	Louisiana{Ò 	
-	Louisianaú¦ 
-
-	Louisiana|Ï 	
-	Louisianaú¡ 
+WashingtonXµ 	
+
+Washington ê 
 
 	Louisiana÷£ 
 
-	Louisiana}Ï 	
-	Louisiana|Ò 	
-	Louisianaú£ 
-
-	Louisianaö¦ 
-
-	Louisiana{Ğ 	
+	Louisiana}Ï 	
 	Louisianaø 
 
+	Louisiana÷¦ 
+
+	Louisiana|Ñ 	
+	Louisianaú£ 
+
+	Louisiana}Ò 	
+	Louisiana§ 
+
+	Louisianaú¡ 
+
+	Louisiana{Ò 	
+	LouisianaõŸ 
+
+	Louisiana|Ò 	
+	Louisianaö 
+
+	Louisiana|Ï 	
+	Louisianaú  
+
+	Louisiana{Ï 	
 	Louisiana€¦ 
 
 	Louisianaû 
+
+	Louisianaú 
+
+	Louisianaú¦ 
+
+	Louisianaû¦ 
+
+	Louisiana{Ğ 	
+	Louisianaù¦ 
+
+	Louisianaû§ 
+
+	Louisiana÷ 
+
+	Louisianaõ 
+
+	Louisianaö¦ 
+
+	Louisiana÷¢ 
+
+	Louisianaÿ¨ 
+
+	Louisianaı¨ 
+
+	Louisiana€§ 
+
+	Louisianaù 
 
-Georgia– 
+	Louisiana?i 
+	Louisianaõ 
+
+	Louisiana|Ğ 	
+	Louisianaú¢ 
+
+	Louisianaø¦ 
+
+	Louisianaş¨ 
 
-Georgia‹Ï 	
-GeorgiaŸ 
-
-GeorgiaŠĞ 	
-GeorgiaDf 
-Georgia•› 
-
+Georgia‹Ğ 	
 GeorgiaŠÏ 	
-Georgia£ 
-
-Georgia”› 
-
-GeorgiaˆË 	
-Georgia–œ 
-
-Georgia—¢ 
-
-Georgia  
-
-Georgia¡ 
-
-Georgia¢ 
-
 Georgia 
 
-Georgia 
-
-Georgia˜Ÿ 
+Georgia’— 
+
+GeorgiaDf 
+Georgia–¢ 
 
 Georgia”š 
 
-Georgia‹Ğ 	
-GeorgiaDh 
-Georgia–¢ 
-
 Georgia‡Ì 	
-Georgia‡Í 	
-GeorgiaDg 
-Georgia‡Ë 	
-Georgia˜  
+GeorgiaŠĞ 	
+GeorgiaDh 
+Georgia–œ 
 
-GeorgiaŠÑ 	
-Georgia’— 
+GeorgiaŸ 
 
 Georgia— 
 
-Georgiaœ 
+Georgia¡ 
 
-Georgiaœ 
+Georgia˜Ÿ 
 
-GeorgiaŠÎ 	
+Georgia”› 
+
+GeorgiaŠÑ 	
+Georgia  
+
 Georgia– 
 
-Alabamaˆ¢ 
+Georgia•› 
 
-Alabama…Ë 	
-Alabama„Ğ 	
-Alabama…¢ 
+Georgia—¢ 
 
-Alabama‡¢ 
+GeorgiaˆË 	
+GeorgiaŠÎ 	
+Georgia£ 
 
-Alabama„Ë 	
-AlabamaŒ 
+Georgia‡Í 	
+Georgiaœ 
 
-AlabamaŒ¢ 
+Georgia˜  
 
-AlabamaƒÌ 	
+Georgia 
+
+Georgia‡Ë 	
+Georgia‹Ï 	
+Georgia¢ 
+
+GeorgiaDg 
+Georgiaœ 
+
+Georgia– 
+
 AlabamaƒÏ 	
-AlabamaŒ 
-
 AlabamaƒĞ 	
 AlabamaŒ  
 
-Alabama…Ÿ 
-
-Alabama…œ 
-
-AlabamaƒË 	
-Alabama‰¢ 
-
-AlabamaƒÍ 	
-Alabama…Ğ 	
-AlabamaŒŸ 
-
-Alabama‹¢ 
-
-Alabama…¤ 
-
-Alabama…¡ 
+Alabamaˆ¢ 
 
 AlabamaŠ¢ 
 
-Alabama… 
-
-Alabama…£ 
-
-AlabamaƒÎ 	
-Alabama… 
+Alabama…  
 
 AlabamaBf 
 Alabama†¢ 
 
-AlabamaŒœ 
+Alabama…Ë 	
+AlabamaŒ¢ 
+
+Alabama‹¢ 
+
+Alabama…¢ 
+
+AlabamaŒ 
+
+Alabama…¤ 
 
 AlabamaŒš 
-
-AlabamaBg 
+
+Alabama…œ 
+
+AlabamaƒÎ 	
+Alabama…£ 
+
+AlabamaŒ 
+
+Alabama…Ğ 	
+AlabamaƒË 	
+Alabama…¡ 
+
+Alabama… 
+
 AlabamaŒ¡ 
 
+Alabama‡¢ 
+
+AlabamaŒŸ 
+
+Alabama„Ë 	
+AlabamaƒÍ 	
 AlabamaŒ› 
 
-Alabama…  
-
-UtahÈŠ 
-
-UtahÈƒ 
-
-UtahÂı 
+Alabama…Ÿ 
+
+AlabamaŒœ 
+
+AlabamaƒÌ 	
+Alabama‰¢ 
+
+Alabama„Ğ 	
+AlabamaBg 
+Alabama… 
+
+UtahaÆ 	
+Utah_Æ 	
+UtahÈ‹ 
 
 UtahÀı 
-
-UtahÈ 
-
-UtahÈ‡ 
-
-UtahÈ„ 
-
-Utah0b 
-Utah/a 
-Utah1b 
-Utah`¿ 	
+
+UtahcÆ 	
+UtahÈŠ 
+
+Utah_¿ 	
 UtahÄ 
+
+Utah/` 
+Utah½ı 
+
+UtahÈˆ 
+
+UtahÃı 
+
+UtahÈ… 
 
 UtahÈ‰ 
 
-Utaha¿ 	
-UtahÃı 
+Utah^Æ 	
+UtahÇ 
 
-Utah0a 
+Utah1a 
+Utah1b 
+Utah/b 
+Utah^¿ 	
+Utah`¿ 	
+UtahbÆ 	
+UtahÂı 
+
 UtahÆ 
 
-UtahÁı 
+UtahÈ‡ 
+
+Utah¿ı 
+
+UtahÈ† 
+
+UtahÈƒ 
+
+UtahbÁ 	
+UtahÈŒ 
+
+UtahÈ 
+
+Utah0a 
+Utah¼ı 
+
+UtahÈ‚ 
 
 UtahÅ 
-
-Utah¼ı 
 
-Utah/b 
-UtahÈ† 
-
-Utah_¿ 	
-UtahaÆ 	
-UtahÈ 
-
-Utah^Æ 	
-UtahbÆ 	
+Utah0b 
+UtahÈ 
+
 Utah¾ı 
-
-UtahÇ 
-
-UtahÈˆ 
 
-UtahbÁ 	
-Utah`Æ 	
-Utah/` 
-UtahÈ… 
-
-UtahÈ‹ 
-
+UtahcÁ 	
+Utaha¿ 	
 Utah0` 
-Utah¿ı 
+UtahÁı 
 
-Utah_Æ 	
-Utah½ı 
-
-Utah1a 
-UtahÈ‚ 
-
-Utah^¿ 	
-UtahcÆ 	
-UtahÈŒ 
-
-UtahcÁ 	
-Ohio‰Â 	
-Ohio‘‡ 
+Utah`Æ 	
+Utah/a 
+UtahÈ„ 
 
-Ohio‰Ã 	
-OhioŒÁ 	
 Ohio‰¿ 	
-Ohio‚ 
-
-Ohio˜ı 
-
-Ohio€ 
-
-Ohio 
-
 Ohio‹¿ 	
-OhioŠ¿ 	
-OhioˆÂ 	
-OhioŠÂ 	
-Ohio–† 
-
-OhioŠÃ 	
-Ohio‘† 
-
-Ohioˆ¿ 	
-Ohio—„ 
-
-OhioŒ¿ 	
-Ohio™ü 
-
-Ohio™ı 
-
-OhioE` 
-Ohioƒ 
-
-Ohio—ı 
+Ohio† 
 
 Ohio… 
 
-Ohio† 
+Ohio—ı 
 
-Ohio–… 
+OhioŒÀ 	
+Ohio‰Â 	
+Ohioˆ¿ 	
+Ohio™ü 
 
-OhioŒÀ 	
-OhioD` 
-Ohioÿ 
+Ohio‚ 
 
-Ohioş 
+OhioŒÁ 	
+Ohio–† 
 
-Ohio–„ 
+Ohio‰Ã 	
+Ohio˜ı 
+
+Ohio„ 
 
 Ohio˜„ 
 
-Ohio„ 
-
-Texasò§ 
-
-Texas×¤ 
+Ohio€ 
 
-TexasqÒ 	
-Texasç± 
-
-Texasãª 
+Ohio—„ 
+
+OhioD` 
+Ohioş 
 
-TexasyÒ 	
-TexaspË 	
-Texasê± 
+OhioŒ¿ 	
+Ohioÿ 
 
-TexasnÒ 	
-Texas7h 
-Texas:j 
-Texas7g 
-Texasæ° 
-
-Texasâ‘ 
+OhioŠÂ 	
+Ohio–„ 
 
-TexastÖ 	
-TexasxÍ 	
-TexastØ 	
-TexaspÉ 	
-Texas6h 
-TexasÖ¤ 
-
-Texasï› 
-
-TexasŞ‘ 
-
-Texasâ– 
-
-Texasä™ 
-
-TexasÛŸ 
-
-Texasä¬ 
-
-Texasêš 
-
-Texasç° 
-
-Texas9i 
-Texas×¥ 
-
-Texasá§ 
-
-Texasó› 
+OhioŠÃ 	
+OhioŠ¿ 	
+Ohio–… 
 
-TexaswÔ 	
-Texas<g 
-Texasİ‘ 
+Ohioƒ 
 
-TexasrÍ 	
-TexasÛ¦ 
-
-Texasô¡ 
-
-Texasğ¨ 
-
-Texasïš 
-
-Texasì› 
-
-Texasä˜ 
-
-Texasí› 
-
-Texasâ” 
-
-Texasò¦ 
-
-TexasÜ‘ 
+Ohio™ı 
 
-TexaspÒ 	
-Texasê° 
-
-TexasÛ› 
-
-Texasá¦ 
-
-Texaså¬ 
-
-Texasâ’ 
-
-Texasê¬ 
+OhioˆÂ 	
+OhioE` 
+Ohio‘‡ 
 
-TexaskÑ 	
-Texasë¬ 
+Ohio 
 
-TexaspÊ 	
-Texasî› 
-
-TexasqÔ 	
-Texasìª 
-
-Texasó¦ 
-
-Texasê² 
-
-Texas8f 
-Texasâ“ 
-
-TexasÛ 
-
-Texasô¢ 
-
-TexaslÒ 	
-TexasÓ  
-
-Texass× 	
-Texasà¦ 
-
-TexasÒ  
-
-Texasê› 
+Ohio‘† 
 
 Texasê® 
-
-TexasÛœ 
-
-TexasÚ¨ 
-
-TexasÛ 
 
-TexasoÒ 	
-Texas9j 
-TexasxÒ 	
-Texas9g 
-Texas:g 
-Texasâ— 
-
-TexassÖ 	
-Texasâ• 
-
-Texas×¦ 
-
-Texast× 	
-TexasmÒ 	
-TexasÚ¦ 
-
-Texasñ¨ 
-
+TexaspÊ 	
+TexastÍ 	
+TexaspË 	
+TexaspÒ 	
+TexasqÓ 	
+TexastØ 	
 Texasß¦ 
 
 TexasŞ¦ 
-
-TexastÍ 	
-Texas9h 
-Texas7f 
-Texas4 
-Texasô£ 
-
-TexaskĞ 	
-Texasìš 
-
-TexasqÓ 	
-Texasë› 
-
-Texasì« 
-
-TexasÓ¡ 
 
 Texasíª 
 
-TexaslÓ 	
-Texasã« 
+TexasoÉ 	
+Texasô¢ 
 
-Texasç™ 
+Texasâ– 
+
+Texasìš 
 
-TexasjĞ 	
-Texasæ™ 
-
-Texasê­ 
-
-Texasô¤ 
-
-Texasß‘ 
+TexaspÉ 	
+Texasâ• 
 
-Texas8g 
-Texasé² 
-
-Texasîª 
-
-TexasvÔ 	
-Texas<h 
-Texas7e 
-TexasxÓ 	
-Texasò› 
-
-Texas;g 
-TexasoÉ 	
-TexassÍ 	
-TexasnÉ 	
-Texaså­ 
-
-Texas8h 
-TexasÚ§ 
+Texas<h 
+TexasqÒ 	
+Texasó› 
 
 Texaså™ 
 
 Texasà‘ 
 
+TexasÛ 
+
+Texasò§ 
+
+Texasêš 
+
+Texas8h 
+Texas4 
+Texasä™ 
+
+Texasë¬ 
+
+Texasâ‘ 
+
+Texasí› 
+
+TexasŞ‘ 
+
+TexastÖ 	
+Texas8g 
+Texas×¦ 
+
+TexasÛ 
+
+Texasé² 
+
+TexaslÓ 	
+Texas:j 
+TexasnÉ 	
+TexaskÑ 	
+TexasvÔ 	
+Texas7f 
+Texas;g 
+TexasjĞ 	
+Texasìª 
+
+Texass× 	
+TexasÒ  
+
+TexasÚ¨ 
+
+Texasä¬ 
+
+Texasïš 
+
+Texasá§ 
+
+Texast× 	
 Texasô¥ 
+
+Texasà¦ 
+
+TexasxÒ 	
+TexasmÒ 	
+TexasÖ¤ 
+
+TexasxÍ 	
+Texasâ“ 
+
+Texasã« 
+
+Texas:g 
+Texas9j 
+TexasÛœ 
+
+Texas<g 
+Texasê­ 
+
+Texasê² 
+
+TexaskĞ 	
+TexaswÔ 	
+TexasyÒ 	
+TexasrÍ 	
+Texaså¬ 
+
+Texas7e 
+Texas8f 
+TexasoÒ 	
+Texas×¥ 
+
+Texasâ’ 
+
+Texas×¤ 
+
+Texasê¯ 
+
+TexasxÓ 	
+Texasç° 
+
+TexasÚ§ 
+
+Texasì« 
+
+Texasó¦ 
+
+Texasä˜ 
+
+Texasô¡ 
+
+Texasá¦ 
+
+Texasæ° 
+
+Texasò› 
+
+Texasç™ 
+
+Texas6h 
+Texasß‘ 
+
+TexasÛ› 
+
+TexasÜ‘ 
+
+Texasâ— 
+
+Texas7h 
+TexasnÒ 	
+TexassÖ 	
+TexasÕ¢ 
+
+Texaså­ 
+
+Texasì› 
+
+Texasô£ 
+
+Texasï› 
+
+TexasÔ¢ 
+
+Texasê± 
+
+TexasqÔ 	
+Texasİ‘ 
+
+Texas7g 
+Texas9g 
+TexasÛŸ 
+
+Texasâ” 
+
+Texasô¤ 
+
+Texasñ¨ 
+
+Texasğ¨ 
+
+Texas9h 
+Texasãª 
+
+Texasê° 
+
+TexasÓ¡ 
+
+Texasî› 
+
+TexasÚ¦ 
+
+TexaslÒ 	
+TexassÍ 	
+TexasÛ¦ 
+
+Texasê¬ 
+
+Texasç± 
+
+Texas9i 
+Texasê› 
+
+Texasæ™ 
 
 Texasá‘ 
 
-Texasê¯ 
+Texasîª 
 
-TexasÕ¢ 
+Texasò¦ 
 
-TexasÔ¢ 
-
-ColoradokÆ 	
-ColoradoÌ 
-
-Colorado3a 
-ColoradohÁ 	
-Colorado4b 
-Colorado6a 
-ColoradoÚ 
-
-ColoradofÆ 	
-ColoradoĞ 
-
-ColoradoÜ 
-
-ColoradoÒ 
-
-ColoradomÆ 	
-ColoradoÜ† 
-
-Colorado5a 
-ColoradoÜ‚ 
-
-ColoradoË 
-
-ColoradokÁ 	
-ColoradoÜ 
-
-Colorado5b 
-ColoradoÓ 
-
-ColoradojÁ 	
-ColoradogÁ 	
-ColoradoÛ 
-
-ColoradofÁ 	
-ColoradoÕ 
-
-ColoradoÎ 
-
-Colorado6b 
-ColoradoÜ‰ 
-
-ColoradoeÅ 	
-ColoradolÆ 	
-ColoradojÆ 	
-ColoradoeÄ 	
-ColoradomÁ 	
-ColoradoeÃ 	
-ColoradoiÁ 	
-ColoradoÜˆ 
-
-ColoradoÖ 
-
-ColoradohÆ 	
-ColoradoØ 
+Texasë› 
+
+TexasÓ  
 
 ColoradoÜ„ 
-
-ColoradolÁ 	
-ColoradoeÆ 	
-ColoradoÏ 
-
-ColoradogÆ 	
-Colorado× 
 
 ColoradoÜ‡ 
 
 ColoradoeÁ 	
-ColoradoÜ‹ 
-
-ColoradoÜ… 
-
-Colorado4a 
-ColoradoeÂ 	
-ColoradoÔ 
+ColoradoÒ 
 
-ColoradoiÆ 	
-ColoradoÙ 
+ColoradoeÃ 	
+ColoradolÆ 	
+ColoradoÜ‚ 
 
-ColoradoÜƒ 
+ColoradoÑ 
+
+ColoradohÆ 	
+ColoradohÁ 	
+ColoradoÜŠ 
 
+ColoradoÊ 
+
+ColoradoÖ 
+
+Colorado6a 
+Colorado3a 
+ColoradoÛ 
+
+ColoradomÁ 	
+Colorado× 
+
+Colorado3b 
 ColoradoÍ 
 
-ColoradoÜŠ 
+ColoradoÙ 
 
 ColoradoÜŒ 
 
-ColoradoÑ 
+ColoradoÜ 
+
+ColoradokÁ 	
+ColoradoÎ 
 
-ColoradoÊ 
+ColoradoÜ‹ 
+
+ColoradoØ 
+
+ColoradoÜ‰ 
+
+ColoradoiÆ 	
+ColoradoeÄ 	
+ColoradojÁ 	
+ColoradoÔ 
+
+ColoradoÜ 
+
+ColoradogÆ 	
+ColoradoÜƒ 
+
+ColoradolÁ 	
+Colorado5a 
+ColoradokÆ 	
+ColoradoÕ 
+
+ColoradogÁ 	
+ColoradofÁ 	
+ColoradoÜ… 
+
+ColoradoeÅ 	
+ColoradoeÂ 	
+ColoradoÜˆ 
+
+ColoradoË 
+
+ColoradojÆ 	
+ColoradoÜ† 
 
-Colorado3b 
-South CarolinaÎ 	
-South Carolina—™ 
-
-South Carolinaš— 
-
+Colorado5b 
+ColoradoÏ 
+
+ColoradoĞ 
+
+ColoradoÓ 
+
+ColoradoÚ 
+
+ColoradofÆ 	
+ColoradomÆ 	
+ColoradoÌ 
+
+ColoradoeÆ 	
+Colorado4b 
+ColoradoiÁ 	
+Colorado6b 
+Colorado4a 
 South CarolinaÍ 	
+South Carolina”– 
+
+South CarolinaFf 
+South Carolina•– 
+
+South Carolina–˜ 
+
 South Carolina™œ 
 
-South Carolinaœœ 
-
-South Carolina™ 
-
-South CarolinaŒË 	
-South Carolina”– 
-
-South Carolina•— 
-
-South Carolina›— 
-
-South Carolina•– 
+South Carolina—™ 
 
 South Carolina—˜ 
 
-South Carolina‹Ë 	
-South Carolina–˜ 
-
-South CarolinaFf 
-South CarolinaÌ 	
 South Carolinaœ— 
-
-OklahomaxÉ 	
-Oklahomaß 
-
-Oklahoma9d 
-Oklahomaò” 
-
-Oklahomaä– 
-
-Oklahomaë 
-
-Oklahomaé 
-
-Oklahoma2 
-Oklahomağ 
-
-Oklahomaò– 
-
-OklahomasÊ 	
-Oklahomaê 
-
-Oklahomaä 
-
-OklahomaŞ 
-
-Oklahomaâ 
-
-Oklahomaë˜ 
-
-Oklahomaá 
-
-Oklahomaæ 
-
-Oklahomañ˜ 
-
-OklahomarÊ 	
-OklahomaÜ 
-
-OklahomaxÊ 	
-Oklahomaí˜ 
-
-Oklahomaò— 
-
-Oklahomaİ 
-
-Oklahomaì˜ 
-
-Oklahomañ 
-
-Oklahomaï 
-
-Oklahomaå 
-
-Oklahomaè 
-
-Oklahomaì 
-
-Oklahomaç 
+
+South CarolinaÌ 	
+South CarolinaŒË 	
+South Carolina›— 
+
+South Carolina•— 
+
+South CarolinaÎ 	
+South Carolina‹Ë 	
+South Carolinaœœ 
+
+South Carolinaš— 
+
+South Carolina™ 
 
 Oklahomaå– 
 
-Oklahomaî 
-
-Oklahomaò• 
-
-Oklahomaà 
+Oklahomañ 
 
 Oklahomaò˜ 
 
+Oklahomaâ 
+
+OklahomaxË 	
+Oklahomaò– 
+
+Oklahomağ 
+
+OklahomaŞ 
+
+Oklahomaò• 
+
+OklahomaxÈ 	
+Oklahomaé 
+
+OklahomaÜ 
+
 Oklahomaï˜ 
 
-Oklahomaí 
+Oklahomaİ 
+
+Oklahomaë˜ 
+
+Oklahoma9d 
+Oklahomaä 
+
+Oklahomaò— 
+
+Oklahoma2 
+Oklahomaã 
+
+OklahomarÊ 	
+Oklahomañ˜ 
+
+Oklahomaà 
+
+Oklahomaß 
+
+OklahomasË 	
+Oklahomaê 
+
+Oklahomaæ 
+
+Oklahomaì˜ 
+
+Oklahomaå 
+
+Oklahomaç 
+
+Oklahomaè 
+
+Oklahomağ˜ 
+
+Oklahomaë 
+
+OklahomasÊ 	
+Oklahomaá 
 
 Oklahomaò“ 
+
+Oklahomaî 
+
+Oklahomaä– 
+
+Oklahomaï 
+
+Oklahomaì 
+
+Oklahomaí˜ 
 
-OklahomaxË 	
-OklahomasË 	
-Oklahomaã 
+OklahomaxÊ 	
+Oklahomaí 
+
+Oklahomaò” 
 
 Oklahomaî˜ 
 
-OklahomaxÈ 	
-Oklahomağ˜ 
-
-	TennesseeŠ‘ 
-
-	Tennessee‡É 	
-	Tennessee„” 
-
-	TennesseeŒ‘ 
-
-	Tennessee‘‘ 
-
-	Tennessee‘ 
-
-	Tennessee‹‘ 
-
-	Tennessee” 
-
-	Tennessee‹” 
-
-	Tennessee‘’ 
-
-	Tennesseeƒ‘ 
-
-	Tennessee’’ 
-
-	TennesseeŠ” 
-
-	Tennessee” 
-
-	Tennessee‰” 
-
-	Tennessee„È 	
+OklahomaxÉ 	
 	Tennessee€” 
 
 	TennesseeŠ 
 
-	Tennessee†” 
-
-	Tennessee„É 	
-	Tennessee‚É 	
+	TennesseeÉ 	
 	Tennessee‘ 
 
-	Tennessee’‘ 
+	Tennessee‘‘ 
 
-	Tennesseeˆ” 
+	Tennessee„” 
 
-	Tennessee‚” 
-
-	TennesseeƒÉ 	
-	TennesseeŒ” 
-
-	Tennessee…É 	
-	Tennessee‘ 
-
-	Tennesseeƒ” 
-
-	Tennessee‘ 
-
-	Tennessee‚‘ 
-
-	TennesseeÉ 	
-	Tennessee” 
-
-	Tennessee” 
-
-	Tennessee‡” 
-
-	Tennessee’ 
-
-	Tennessee“‘ 
-
-	Tennessee„‘ 
-
-	TennesseeƒÈ 	
-	Tennessee…” 
+	Tennessee” 
 
 	Tennessee†É 	
 	Tennessee…‘ 
 
+	Tennessee‚” 
+
+	Tennessee’’ 
+
+	Tennessee…É 	
+	Tennessee„È 	
+	TennesseeŒ” 
+
+	Tennessee” 
+
+	Tennessee…” 
+
+	Tennessee‚É 	
+	Tennessee‘ 
+
+	TennesseeƒÈ 	
+	Tennessee‡É 	
+	Tennessee” 
+
+	Tennessee‰” 
+
+	Tennessee” 
+
+	TennesseeŠ‘ 
+
+	Tennesseeƒ‘ 
+
+	TennesseeŠ” 
+
+	Tennessee“‘ 
+
+	Tennessee†” 
+
+	Tennessee’‘ 
+
+	TennesseeŒ‘ 
+
+	Tennessee‘’ 
+
+	Tennessee’ 
+
+	Tennessee„É 	
+	Tennessee‘ 
+
+	Tennessee‹” 
+
+	Tennessee‚‘ 
+
+	TennesseeƒÉ 	
+	Tennessee‘ 
+
+	Tennesseeˆ” 
+
+	Tennesseeƒ” 
+
+	Tennessee‹‘ 
+
+	Tennessee„‘ 
+
+	Tennessee‡” 
+
 	Tennessee“ 
-
-Wyomingh¾ 	
-WyomingÈş 
-
-WyomingÑş 
-
-WyomingÕş 
-
-WyomingÌş 
-
-WyomingÅõ 
-
-Wyomingg¾ 	
-WyomingÖñ 
-
-Wyomingf¾ 	
-Wyomingjº 	
-Wyomingf¹ 	
-WyomingÖò 
-
-WyomingÈñ 
-
-Wyomingc½ 	
-WyomingÔş 
-
-WyomingÅú 
-
-Wyoming3^ 
-WyomingÇñ 
-
-WyomingÅù 
-
-WyomingÍş 
-
-WyomingÖû 
-
-Wyomingc» 	
-WyomingÆñ 
-
-Wyoming2^ 
-Wyominge¹ 	
-WyomingÒñ 
-
-WyomingÅó 
-
-WyomingÖø 
-
-Wyomingj½ 	
-WyomingÖö 
-
-WyomingÅñ 
-
-WyomingÒş 
-
-Wyomingd¾ 	
-Wyominge¾ 	
-WyomingÖ÷ 
-
-WyomingÊş 
-
-Wyomingj» 	
-Wyomingg¹ 	
-Wyomingj¼ 	
-WyomingÖü 
-
-WyomingÑñ 
-
-WyomingÖô 
-
-WyomingÖú 
-
-WyomingÉñ 
-
-WyomingĞñ 
-
-Wyomingh¹ 	
-Wyomingc¾ 	
-Wyomingj¹ 	
-Wyomingi¹ 	
-WyomingÅö 
-
-WyomingÔñ 
-
-WyomingÅò 
 
 WyomingÖõ 
 
-WyomingÖù 
+WyomingËñ 
+
+Wyomingj½ 	
+Wyomingc¼ 	
+Wyomingd¹ 	
+WyomingÓş 
 
-WyomingÓñ 
+WyomingÊñ 
+
+Wyominge¾ 	
+WyomingÑş 
 
-WyomingÇş 
+WyomingÖñ 
+
+Wyomingf¾ 	
+WyomingÅò 
+
+Wyomingh¾ 	
+Wyomingg¹ 	
+Wyominge¹ 	
+WyomingÖô 
 
-WyomingÅü 
+WyomingÅö 
+
+WyomingÖö 
+
+WyomingĞñ 
+
+WyomingÉş 
+
+Wyomingjº 	
+Wyomingg¾ 	
+WyomingÅû 
+
+WyomingÅø 
+
+WyomingÅ÷ 
+
+WyomingÒñ 
+
+WyomingÔñ 
+
+WyomingÆş 
+
+WyomingÖ÷ 
+
+Wyomingi¾ 	
+WyomingÖó 
+
+WyomingÌñ 
 
 WyomingÎş 
 
-WyomingĞş 
+WyomingÌş 
+
+WyomingÖş 
+
+Wyomingcº 	
+WyomingÏñ 
+
+WyomingÆñ 
 
-Wyoming2] 
-WyomingÊñ 
+Wyoming2] 
+Wyomingc¾ 	
+Wyomingc¹ 	
+WyomingÇş 
+
+WyomingÅü 
+
+Wyomingi¹ 	
+WyomingÅù 
+
+WyomingÍñ 
+
+Wyomingd¾ 	
+WyomingĞş 
 
 WyomingÅş 
 
 Wyomingj¾ 	
-WyomingÍñ 
+WyomingÖû 
 
 WyomingÏş 
 
-WyomingÅô 
+WyomingÈñ 
 
-WyomingËñ 
+WyomingÍş 
 
-WyomingÉş 
+WyomingÉñ 
 
-WyomingÅø 
-
-Wyomingc¼ 	
-WyomingÆş 
+WyomingÇñ 
 
-WyomingËş 
+WyomingÖò 
 
-WyomingÏñ 
-
-Wyomingcº 	
-WyomingÖş 
+WyomingÅó 
 
-WyomingÌñ 
-
-WyomingÅû 
+WyomingÕş 
 
-Wyoming4^ 
-WyomingÅ÷ 
-
-WyomingÕñ 
-
-WyomingÖı 
-
-WyomingÎñ 
-
-WyomingÓş 
-
-Wyoming3] 
-Wyomingd¹ 	
-Wyoming4] 
-WyomingÖó 
+Wyoming2^ 
+WyomingÖú 
+
+Wyomingh¹ 	
+WyomingÓñ 
 
 WyomingÅı 
+
+WyomingÅñ 
+
+WyomingÅõ 
 
-Wyomingi¾ 	
-Wyomingc¹ 	
+Wyomingc» 	
+WyomingËş 
+
+Wyoming4^ 
+WyomingÔş 
+
+WyomingÎñ 
+
+Wyomingj¼ 	
+WyomingÈş 
+
+WyomingÒş 
+
+WyomingÖù 
+
+Wyomingj» 	
+Wyomingj¹ 	
+WyomingÖø 
+
+Wyomingc½ 	
+Wyoming3] 
+WyomingÖı 
+
+Wyoming3^ 
+WyomingÖü 
+
+WyomingÅô 
+
+WyomingÕñ 
+
+Wyomingf¹ 	
+Wyoming4] 
+WyomingÑñ 
+
+WyomingÊş 
+
+WyomingÅú 
+
 HawaiiEÆ 
 
 HawaiiEÇ 
-
-North Dakota7X 
-North Dakotaêâ 
+
+North Dakotam± 	
+North Dakotaêä 
+
+North Dakotat° 	
+North Dakotam² 	
+North Dakotaëå 
 
-North DakotaÙë 
+North Dakotaêà 
 
-North DakotaÙå 
+North DakotaÙà 
 
 North DakotaÙê 
 
-North DakotaÙä 
-
-North Dakotaìë 
-
-North Dakotat² 	
-North Dakotau³ 	
-North Dakotaêä 
-
-North Dakotam± 	
-North Dakotat± 	
-North Dakota7Z 
-North DakotaÙã 
-
 North DakotaÙé 
-
-North Dakotaëå 
-
-North DakotaÙè 
-
-North Dakota, 
-North Dakotaêà 
 
-North Dakotam³ 	
-North Dakotaêå 
-
-North Dakotam° 	
-North Dakota7Y 
-North Dakota8Z 
-North Dakotaêá 
-
-North Dakotaêã 
-
+North Dakotam³ 	
+North Dakotam´ 	
 North DakotaÙç 
 
-North DakotaÙâ 
-
-North Dakota9Z 
-North DakotaÙà 
-
-North Dakotam´ 	
-North Dakotam² 	
-North Dakota:Z 
 North DakotaÙæ 
+
+North Dakota7Z 
+North Dakota7X 
+North Dakotat² 	
+North Dakotat± 	
+North Dakota8Z 
+North DakotaÙë 
+
+North DakotaÙã 
 
-North Dakotat° 	
+North Dakotamµ 	
+North DakotaÙè 
+
 North DakotaÙá 
 
-North Dakotamµ 	
-North Dakotat³ 	
-Kentucky… 
-
-Kentucky‹ 
-
-Kentucky“‰ 
-
-Kentucky’‰ 
-
-Kentucky‰ 
-
-Kentucky‰Æ 	
-Kentucky‰ 
-
-Kentucky’ 
-
-KentuckyŠ 
-
-Kentucky 
-
-Kentucky‰ 
-
-Kentucky†Æ 	
-Kentuckyƒ 
-
-Kentucky‰Å 	
-Kentucky 
+North Dakotau³ 	
+North Dakotaêã 
+
+North Dakotaìë 
+
+North Dakota9Z 
+North Dakota:Z 
+North Dakotaêá 
+
+North Dakotaêâ 
+
+North DakotaÙå 
+
+North Dakota7Y 
+North DakotaÙä 
+
+North DakotaÙâ 
+
+North Dakotaêå 
+
+North Dakotat³ 	
+North Dakotam° 	
+North Dakota, 
+KentuckyŠ 
 
 Kentucky‹ 
 
-Kentucky…Æ 	
-Kentucky‘‰ 
-
-Kentucky‡Æ 	
-Kentuckyˆ 
-
-KentuckyˆÅ 	
 Kentucky‰ 
-
-Kentucky„ 
-
-Kentucky„Æ 	
-Kentucky‡Å 	
-KentuckyŒ‹ 
-
-KentuckyŒ 
-
-KentuckyŠ 
-
-Kentucky† 
-
-KentuckyƒÆ 	
-Kentucky‘ 
-
-KentuckyˆÆ 	
-Kentucky”‹ 
 
 Kentuckyˆ 
 
-Kentucky 
+Kentucky‹ 
+
+Kentucky†Æ 	
+KentuckyŒ‹ 
+
+KentuckyˆÅ 	
+Kentucky‰ 
+
+Kentucky“‰ 
+
+Kentuckyƒ 
+
+Kentucky 
+
+Kentucky… 
+
+KentuckyˆÆ 	
+Kentucky’ 
+
+Kentucky„ 
+
+Kentucky 
+
+Kentucky‡Å 	
+Kentucky‰Æ 	
+Kentucky 
+
+Kentucky…Æ 	
+KentuckyŠ 
+
+Kentucky‡Æ 	
+Kentucky‰ 
+
+Kentucky‰Å 	
+KentuckyƒÆ 	
+Kentucky”Œ 
+
+Kentucky‘‰ 
 
 Kentucky‡ 
 
-Kentucky”Œ 
+Kentucky‰ 
 
-Kentucky 
-
-Maine¹ë 
-
-Maine¼ó 
-
-Maine·õ 
-
-Maine¹í 
-
-Maine· 	
-Maine¹ì 
-
-MaineŸ¸ 	
-Maine¾ì 
-
-Maine¶ 	
-Maine¸ô 
-
-Maine¼ò 
-
-Maine·ñ 
+Kentucky† 
+
+Kentucky”‹ 
+
+Kentucky‘ 
+
+Kentucky„Æ 	
+Kentucky’‰ 
+
+Kentucky 
+
+KentuckyŒ 
+
+Kentuckyˆ 
 
 Maine· 	
-Maine¾è 
-
-Maineœ· 	
-Maine·ò 
-
-Maine·ï 
-
 Maine¾ê 
 
+Maine¸ 	
 Maine·ô 
-
-Maine¾é 
-
-Maine¾î 
-
-Maine¹ê 
-
-MaineN\ 
-Maine·ğ 
-
-Maineºô 
 
 Maine¾ë 
 
-Maine¾ï 
+Maine·õ 
 
-Maine»è 
-
-Maine¸ 	
 Maine¾í 
 
-Maine½ò 
+Maine¹ê 
+
+Maine¼ò 
+
+Maineºé 
 
 Maine¹ô 
 
-Maine·ó 
+Maine¾ì 
 
 Maineµ 	
-Maineºé 
+Maine½ò 
+
+MaineN\ 
+Maine·ñ 
 
-Maine¶ 	
+Maineœ· 	
+Maine¹ë 
+
+Maine·ó 
+
 Maine»é 
 
+Maine¼ó 
+
+Maine¶ 	
+Maine¾ï 
+
+Maine·ğ 
+
+Maine·ò 
+
+Maine¹í 
+
+Maine¸ô 
+
+Maine· 	
+Maine·ï 
+
+MaineŸ¸ 	
+Maineºô 
+
 Maineµ 	
-Maine´ 	
+Maine¾î 
+
+Maine¹ì 
+
+Maine»è 
+
+Maine¶ 	
+Maine¾é 
+
+Maine´ 	
+Maine¾è 
+
 New York–¾ 	
+New York­ñ 
+
 New York®õ 
 
-New York©ó 
+New York®ö 
 
-New York®ñ 
+New York’» 	
+New York¡ö 
 
 New York§û 
 
-New York•¹ 	
-New York®÷ 
-
-New York½ 	
-New York–¼ 	
-New York’¼ 	
-New York‘» 	
-New York­ş 
-
+New York–½ 	
 New York«ñ 
-
-New YorkJ^ 
-New York¡÷ 
-
-New York’» 	
-New YorkH^ 
-New York¡ö 
-
-New York§ô 
 
 New York®ô 
 
-New York§ú 
-
-New YorkJ] 
-New York®ö 
-
-New York–½ 	
-New York®ù 
-
+New York“» 	
 New York ÷ 
 
-New York–» 	
-New York¥ú 
+New York½ 	
+New York§ô 
 
-New York“¼ 	
+New York¡÷ 
+
+New York’¼ 	
 New York¤ú 
 
-New York“» 	
+New York‘» 	
+New York©ó 
+
+New York®ò 
+
+New York–º 	
+New York§õ 
+
+New York®÷ 
+
+New York–» 	
+New York®ù 
+
+New York®ó 
+
+New York–¼ 	
+New YorkJ^ 
+New York®ø 
+
+New YorkJ] 
+New York®ñ 
+
+New YorkH^ 
+New York“¼ 	
+New York•¹ 	
+New York¬ñ 
+
+New York–¹ 	
 New York«ü 
+
+New York­ş 
+
+New York¥ú 
 
 New York¦ú 
 
-New York–¹ 	
-New York®ò 
-
-New York­ñ 
-
-New York®ø 
-
-New York¬ñ 
-
-New York§õ 
-
-New York–º 	
-New York®ó 
-
-Nevada³ 
-
-Nevadaº‹ 
-
-Nevada·‘ 
-
-Nevada«† 
-
+New York§ú 
+
+Nevada-b 
+NevadaZÆ 	
 Nevada±‹ 
-
-Nevadaºı 
-
-Nevada¯ı 
-
-Nevada³Œ 
-
-Nevada\¿ 	
-Nevadaµ 
-
-Nevada\Ä 	
-Nevadaº„ 
 
 NevadaºŒ 
 
-Nevada´ı 
+Nevadaº‹ 
 
-Nevada\À 	
-Nevadaº 
-
-Nevada+a 
-NevadaYÄ 	
-Nevadaºˆ 
-
-Nevada·ı 
-
-Nevada« 
-
-Nevada-b 
-Nevadaºÿ 
+Nevada\¿ 	
+Nevadaº‚ 
 
-Nevada\Ã 	
-Nevada\Å 	
-Nevada0 
-Nevada¶ı 
+Nevada[Ç 	
+NevadaZ¿ 	
+Nevada³Œ 
+
+Nevada±Š 
+
+Nevada·‘ 
+
+Nevadaº… 
+
+Nevada²ı 
 
 Nevada«ş 
 
-Nevada¸ 
-
-Nevada\Æ 	
-Nevada­ı 
-
-Nevadaº 
-
-Nevada¸ı 
-
-Nevada¹ 
-
-Nevada³ı 
-
-Nevadaº€ 
-
-Nevada²Œ 
+Nevada«† 
 
 Nevadaºƒ 
 
-Nevada´ 
-
-Nevada[Ç 	
-Nevadaº‡ 
-
-Nevada\Â 	
-Nevada\Á 	
-Nevada¶ 
-
-Nevada«€ 
-
 Nevadaºş 
 
-Nevada¬ı 
+Nevadaº 
 
-Nevada«ı 
-
-Nevada®ı 
-
-NevadaºŠ 
+Nevadaµ 
 
-Nevada\Ç 	
-Nevada±Š 
-
-Nevada«ƒ 
-
-NevadaZÆ 	
-Nevada°ı 
-
+Nevada[Æ 	
 Nevada«‚ 
 
-Nevada¸‘ 
+Nevada°ı 
 
-Nevada«… 
+Nevadaºı 
+
+NevadaYÅ 	
+Nevada¶ 
 
-Nevadaº 
+Nevada¹ 
+
+Nevada¸ı 
 
 Nevada°Š 
 
-Nevada±ı 
-
-NevadaXÄ 	
+Nevada«ƒ 
+
 Nevadaº† 
 
-Nevada­ˆ 
+Nevada¸ 
+
+Nevada¯ı 
+
+Nevada«€ 
+
+Nevadaº€ 
+
+Nevada³ 
+
+Nevada­ı 
 
-NevadaYÅ 	
-NevadaW¿ 	
-Nevada²ı 
-
-Nevada+` 
-Nevadaµı 
+NevadaXÄ 	
+NevadaV¿ 	
+NevadaY¿ 	
+Nevadaº‰ 
+
+Nevada\Ç 	
+Nevada¸‘ 
+
+Nevada\Â 	
+Nevada0 
+NevadaWÄ 	
+Nevada¬ı 
 
 Nevada· 
 
-Nevadaµ 
+Nevadaµı 
 
-NevadaWÄ 	
-Nevadaº… 
+NevadaYÄ 	
+Nevadaºÿ 
 
-Nevadaº‰ 
+Nevada´ 
 
-NevadaX¿ 	
-Nevada¸’ 
+Nevada\À 	
+Nevadaºˆ 
+
+Nevada«… 
 
-NevadaZ¿ 	
-Nevadaº‚ 
+Nevada\Ã 	
+Nevadaµ 
+
+Nevada³ı 
+
+Nevada²Œ 
+
+Nevada\Á 	
+Nevada®ı 
+
+NevadaW¿ 	
+Nevadaº‡ 
 
 Nevada«ÿ 
-
-NevadaV¿ 	
-NevadaY¿ 	
-Nevada«„ 
-
+
+Nevada+a 
 Nevada¹ı 
+
+NevadaºŠ 
+
+Nevada«„ 
+
+Nevada+` 
+Nevada\Å 	
+Nevada´ı 
+
+Nevada¸’ 
 
-Nevada[Æ 	
-Nevadaº 
-
-Nevada[¿ 	
+NevadaX¿ 	
 Nevadaº 
 
-Alaska+Œ 
+Nevada\Ä 	
+Nevada±ı 
 
-Alaska0¨ 
-
-Alaska6v 	
-Alaska)¡ 
-
-Alaska-Œ 
-
-Alaska9 
-Alaska‡Ä 
-
-Alaska3Ä 
-
-AlaskaH² 
-
-Alaska2s 	
-AlaskaI 
-Alaska}¬ 
-
-Alaska*Œ 
-
-Alaska@ 
-Alaska+š 
-
-AlaskaH 
-AlaskaL· 
-
-Alaska+¦ 
-
-Alaska! 
-AlaskaSá 
-
-Alaska@ 
-Alaska=˜ 	
-Alaska9• 	
-Alaska6x 	
-Alaskan© 
-
-Alaska N 
-Alaskai® 
+Nevada[¿ 	
+Nevadaº„ 
 
-AlaskaŒÀ 
+Nevada­ˆ 
 
-Alaska1æ 
-
-Alaska-q 	
-Alaska€¯ 
-
-Alaska6• 	
-Alaska 	
-Alaska„µ 
-
-Alaska– 	
-Alaska2Ä 
-
-Alaska0ÿ 
-
-Alaska2• 
-
-Alaska 
-Alaska~¬ 
-
-Alaskaq 	
-AlaskaB¹ 
-
-Alaska=º 
-
-Alaska?— 	
-Alaska†Ä 
-
-Alaska
-< 
-AlaskaB· 
-
-Alaska9 
-Alaskao© 
-
-Alaska)  
-
-AlaskaNß 
-
-Alaska8® 
-
-AlaskaB 
-AlaskaI 
-AlaskaNŞ 
-
-AlaskaA™ 	
-AlaskaH 
-AlaskaE 
-Alaska?œ 	
-Alaska7 
-Alaska.“ 	
-Alaskat« 
-
-AlaskaI¸ 
-
-AlaskaJ° 
-
-Alaska,— 
-
-Alaska6 	
-AlaskaK¸ 
-
-Alaska1’ 	
-Alaska(Œ 
-
-Alaska&š 	
-Alaska'ğ 
-
-Alaska!o 	
-Alaska&– 	
-Alaska@™ 	
-Alaska4• 
-
-Alaska%› 	
-Alaska6y 	
-Alaska^§ 
-
-Alaskaf¨ 
-
-Alaska9 
-Alaska6” 	
-Alaska,Œ 
-
-Alaskaa¦ 
-
-Alaska6ã 
-
-Alaska  	
-Alaska– 	
-Alaska1ş 
-
-Alaska9à 
-
-Alaska?› 	
-Alaska+q 	
-Alaska@İ 
-
-Alaska}¶ 
-
-Alaska"P 
-Alaska6® 
-
-AlaskaB¸ 
-
-Alaska*• 	
-AlaskaDÛ 
-
-Alaska  
-AlaskaŒÂ 
-
-AlaskaJ 
-Alaska3• 
-
-AlaskaW¨ 
-
-Alaska1ü 
-
-AlaskaN² 
-
-AlaskaB 
-Alaska5• 
-
-Alaska œ 	
-Alaska# 
-Alaska?± 
-
-Alaska.Ä 
-
-Alaskajæ 
+Nevada\Æ 	
+Nevada·ı 
 
-AlaskaŒÃ 
-
-Alaska+î 
-
-Alaska6 	
-AlaskaB 	
-Alaska„ 	
-Alaska‡ 	
-Alaskaˆ½ 
-
-Alaska-¨ 
-
-Alaskag¨ 
-
-Alaska8 
-Alaska– 
-
-Alaska[© 
-
-Alaska'ò 
-
-Alaska2¨ 
-
-AlaskaV¨ 
-
-AlaskaJ¹ 
-
-Alaskab¦ 
-
-Alaskao® 
-
-Alaska_¦ 
-
-Alaska>— 	
-Alaska– 	
-Alaska7â 
+Nevadaº 
 
-Alaska¼ 
+Nevadaº 
 
-Alaska‚± 
-
-Alaska/ú 
-
-Alaska 	
-AlaskaF´ 
-
-Alaska6‹ 	
-Alaskaeå 
-
-AlaskaŸ 	
-Alaska\ã 
+Nevada« 
+
+Nevada¶ı 
+
+Nevadaº 
+
+Nevada«ı 
 
-Alaskao 	
-Alaska/’ 	
-Alaskan¨ 
-
-Alaska0’ 	
-Alaska  
-Alaska%… 
-
-Alaskac¦ 
-
-AlaskaG 
 AlaskaB 
-Alaska%o 	
-Alaska$o 	
-Alaska^¦ 
-
-Alaska‚¾ 
-
-Alaska0Ã 
-
-Alaska7ã 
-
-Alaska 
-Alaska 
-Alaskatª 
-
-Alaska† 	
-Alaska 	
-Alaska1ÿ 
-
-Alaska…Ä 
-
-AlaskaˆÄ 
-
-Alaska%„ 
-
-Alaska 	
-Alaskalç 
-
-Alaska* 
-
-Alaska+ô 
-
-Alaska7’ 
-
-Alaska@˜ 	
-Alaska!P 
-Alaskah® 
-
-Alaska7Á 
-
-Alaska6À 
-
-Alaska1Â 
-
-Alaska.Œ 
-
-Alaska
-$ 
-Alaska,q 	
-Alaskag« 
-
-Alaska(q 	
-AlaskaB 
-Alaska— 	
-Alaska6Š 	
-Alaska6€ 	
-AlaskaV© 
-
-Alaska~ 	
-AlaskaQ¬ 
-
-Alaska6‚ 	
-Alaska7• 	
-Alaska„´ 
-
-Alaska
- 
-Alaskae¨ 
-
-AlaskaZá 
-
-Alaska.ú 
-
-AlaskaAİ 
-
-Alaska&É 
-
-AlaskaJ 
-Alaska: 
-AlaskaŠÄ 
-
-Alaskar© 
-
-Alaska?° 
-
-Alaskag© 
-
-Alaska5À 
-
-Alaska3Á 
-
-Alaska> 
-Alaskam® 
-
-Alaskaƒ 	
-Alaskau® 
-
-Alaska— 	
-Alaska6| 	
-Alaskap® 
-
-Alaskagå 
-
-Alaska( 
-
 AlaskaK 
-Alaska+ï 
-
-Alaska7 
-
-AlaskaA 
-AlaskaJ¸ 
-
-Alaska› 	
-AlaskaH 
-Alaska+¥ 
-
-Alaska 
-AlaskaI¹ 
-
-Alaska;Ş 
-
-Alaska%Ê 
-
-AlaskaJ 
-Alaska/Œ 
-
-Alaska1– 
-
-AlaskaF 
-Alaska 
-Alaska3¨ 
-
-Alaska6z 	
-AlaskaD 
-Alaska$¨ 
-
-Alaska3© 
-
-AlaskaM³ 
-
-Alaska9 
-Alaska=¸ 
-
-Alaska‚ 	
-AlaskaH 
-Alaskar 	
-Alaska,ö 
-
-Alaska9¯ 
-
-Alaskaƒ 	
-Alaska 
-Alaska0ç 
-
-AlaskaI 
-AlaskaL 
-AlaskaI 
-Alaska%É 
-
-AlaskaH 
-Alaska
-B 
-AlaskaH³ 
-
-Alaskay° 
-
-Alaska.— 
-
-Alaska}´ 
-
-Alaskap 	
-Alaska|´ 
-
-Alaska{¯ 
-
-Alaska 	
-Alaska4Á 
-
-Alaska!š 	
-Alaska^ã 
-
-Alaska% 
-AlaskaS¬ 
-
-Alaska š 	
-Alaska}µ 
-
-Alaska5ã 
-
-Alaska6w 	
-Alaska6‡ 	
-Alaskap© 
-
-Alaska9 
-AlaskaK 
-Alaska9– 	
-Alaska6ˆ 	
-Alaska~­ 
-
-AlaskaŠ 	
-AlaskaX¨ 
-
-AlaskaŸ 	
-Alaskaˆ¼ 
-
-Alaska'– 	
-Alaska6t 	
-Alaska\â 
-
-Alaska9½ 
-
-Alaska1— 
-
-Alaska6 	
-Alaska6¿ 
-
-AlaskaŸ 	
-Alaska> 
-Alaska-ö 
-
-Alaskaz 	
-Alaska 	
-Alaska6 	
-Alaska0Œ 
-
-Alaska 
-Alaska(  
-
-Alaska+€ 
-
-Alaska-÷ 
-
-AlaskaAÜ 
-
-Alaska7“ 
-
-Alaska6„ 	
-Alaska1Œ 
-
-Alaska › 	
-AlaskaL¸ 
-
-Alaskaq® 
-
-AlaskaEÛ 
-
-Alaska"š 	
-Alaska 
-Alaska|­ 
-
-Alaska0s 	
-Alaska%¨ 
-
-Alaska{ 	
-AlaskaF 
-AlaskaUá 
-
-Alaska6Œ 	
-Alaska)q 	
-AlaskaA 
-Alaska9® 
-
-Alaska 
-Alaska&ƒ 
-
-AlaskaY¨ 
-
-Alaska'Š 
-
-Alaska:ß 
-
-Alaska| 	
-Alaska7‘ 
-
-Alaskaz 	
-Alaska]ã 
-
-Alaska2Œ 
-
-Alaska$ 
-AlaskaHİ 
-
-Alaska‰½ 
-
-AlaskaL¶ 
-
-AlaskaJ 
-AlaskaVá 
-
-Alaska7– 	
-Alaska6… 	
-Alaskaœ 	
-Alaska‹Ä 
-
-Alaska3ã 
-
-Alaskaw® 
-
 Alaska+£ 
-
-Alaska6~ 	
-Alaska9 
-Alaska# 
-Alaska6’ 	
-Alaska!O 
-AlaskaC¶ 
-
-AlaskaTá 
-
-Alaska6¯ 
-
-Alaska” 
-
-Alaska=» 
-
-Alaska[¨ 
-
-Alaska6“ 	
-Alaskag­ 
-
-Alaska? 
-Alaska o 	
-AlaskaM¶ 
-
-Alaska6ƒ 	
-Alaska+ 
-
-Alaska6 	
-Alaska/û 
-
-AlaskaŒ¿ 
-
-Alaska 	
-Alaska;° 
-
-Alaska$ 
-Alaska-© 
-
-AlaskaJ 
-Alaska	$ 
-Alaska6– 	
-Alaska 	
-Alaska 
-AlaskaC 	
-Alaska1ç 
-
-Alaska1Ã 
-
-Alaskagä 
-
-Alaska(ï 
-
-Alaskaw 	
-Alaska*¢ 
-
-Alaska6 	
-Alaska-— 
-
-Alaska$… 
-
-AlaskaB› 	
-Alaska.’ 	
-Alaska‰Ä 
-
-Alaska9À 
-
-AlaskaŒÁ 
-
-Alaska• 
-
-Alaska)¢ 
-
-Alaska/í 
-
-Alaska*› 
-
-Alaska?² 
-
-Alaska*q 	
-Alaska6} 	
-Alaska>¾ 
-
-Alaska 
-AlaskaWá 
-
-Alaskac§ 
-
-Alaska5– 	
-Alaska 	
-Alaskaiå 
-
-Alaska+¤ 
-
-AlaskaP¬ 
-
-Alaska7® 
-
-Alaska!m 	
-AlaskaR¬ 
-
-Alaska 
-Alaska‹ 	
-Alaska)ï 
-
-Alaska4s 	
-Alaska= 
-Alaska=° 
-
-Alaska6† 	
-Alaskabå 
 
 AlaskaB¶ 
 
-Alaskag¬ 
+AlaskaV© 
 
-Alaska'Œ 
-
-Alaska+õ 
-
-Alaska$ 
-Alaska)Œ 
-
-Alaska6u 	
-Alaska7À 
-
-Alaska0 
-
-Alaska) 
-
-AlaskaC 
-Alaska3À 
-
-Alaska9á 
-
-Alaska=· 
-
-Alaska<° 
-
-Alaskar® 
-
-Alaska 	
-AlaskaG 
-Alaskahä 
-
-Alaska'ñ 
-
-Alaska*ô 
-
-Alaska6{ 	
-Alaskao 	
-Alaska#… 
-
-Alaska8• 	
-Alaska4Â 
-
-Alaska\¨ 
-
-AlaskaEŸ 	
-Alaska'ƒ 
-
-Alaska7¿ 
-
-Alaska” 	
-Alaska9 
-Alaska8– 	
-AlaskaBº 
-
-Alaska† 	
-AlaskaP­ 
-
-Alaska6‰ 	
-Alaskak® 
-
-Alaska}­ 
-
-Alaska8á 
-
-Alaskat® 
-
-Alaskag® 
-
-Alaska M 
-Alaskaº 
-
-Alaskas® 
-
-Alaska&o 	
-Alaska1s 	
-Alaska‹ 	
-Alaskav­ 
-
-Alaska!n 	
-Alaskaz¯ 
-
-Alaska/ì 
-
-AlaskaI· 
-
-AlaskaKµ 
+AlaskaEÛ 
 
 Alaska* 
 
-Alaska?³ 
+Alaska9¯ 
+
+AlaskaJ¹ 
+
+Alaska6 	
+Alaska/— 
+
+Alaska.Œ 
+
+Alaska7® 
 
-Alaskaq 	
-Alaska:– 	
-Alaskal® 
+Alaska6 	
+Alaska2Œ 
 
-Alaska! 
-Alaska@¼ 
+AlaskaC 
+AlaskaB› 	
+Alaska– 	
+Alaska‡Ä 
+
+AlaskaAİ 
+
+Alaska/ú 
+
+Alaska‡ 	
+Alaska? 
+AlaskaA 
+Alaska1Œ 
+
+AlaskaB¸ 
+
+AlaskaP­ 
+
+Alaska9 
+Alaska 	
+Alaska)Œ 
+
+Alaska8À 
+
+Alaska~ 	
+AlaskaŸ 	
+AlaskaJ 
+Alaska@™ 	
+Alaska/’ 	
+Alaska1Â 
+
+Alaska6Œ 	
+Alaska!m 	
+Alaska? 
+Alaskar© 
+
+Alaska?— 	
+Alaska– 
+
+Alaskaz¯ 
+
+Alaska– 	
+Alaskahä 
+
+Alaska6„ 	
+Alaska4ã 
+
+Alaska@ 
+Alaska=· 
+
+Alaska# 
+AlaskaB 
+Alaska)  
+
+AlaskaN² 
+
+Alaska 	
+Alaska9® 
+
+Alaska.— 
+
+Alaska 
+Alaska-– 
+
+AlaskaI¸ 
+
+Alaska+Œ 
+
+Alaskar 	
+Alaska*” 	
+AlaskaK¸ 
 
-Alaskaƒ¾ 
+Alaska†Ä 
+
+AlaskaDÛ 
+
+AlaskaJ 
+Alaska 	
+Alaska4Â 
+
+AlaskaH³ 
+
+Alaska1ç 
+
+Alaska3© 
+
+Alaska6‚ 	
+Alaska‰½ 
+
+AlaskaŸ 	
+Alaska^¦ 
+
+Alaska„´ 
+
+Alaska8 
+Alaska › 	
+AlaskaK 
+Alaska$ 
+AlaskaC 	
+Alaskag® 
+
+AlaskaY¨ 
+
+Alaska$ 
+Alaska|´ 
+
+AlaskaQ¬ 
+
+Alaskajæ 
+
+Alaska5¿ 
+
+Alaska) 
+
+Alaskao 	
+Alaska\¨ 
+
+Alaska?° 
+
+Alaska= 
+Alaska) 
+
+Alaska€¯ 
+
+AlaskaL 
+Alaska‹Ä 
+
+Alaska3ã 
+
+Alaska6| 	
+Alaska#† 
+
+Alaska.’ 	
+Alaska 
+Alaska œ 	
+Alaska1¨ 
+
+Alaska'ñ 
+
+Alaska}¶ 
+
+Alaska| 	
+AlaskaL· 
+
+AlaskaŠ 	
+Alaska¡ 	
+Alaska!n 	
+AlaskaB· 
+
+Alaska4Á 
+
+Alaskak® 
+
+Alaska-— 
 
 AlaskaZ¨ 
+
+Alaska 
+Alaska'‹ 
+
+Alaska 
+Alaska?š 	
+Alaska 
+Alaska6‰ 	
+Alaska+ 
+
+Alaska9À 
+
+Alaska” 	
+Alaska4• 
+
+Alaskaq 	
+Alaskaq® 
+
+Alaska7ã 
+
+Alaska&o 	
+Alaska‰Ä 
+
+Alaska N 
+Alaska* 
+
+Alaska6x 	
+AlaskaI 
+Alaska%› 	
+AlaskaJ¸ 
+
+Alaska.ú 
+
+AlaskaH 
+Alaska1– 
+
+Alaska6‘ 	
+AlaskaNŞ 
+
+Alaska-¨ 
+
+Alaska# 
+Alaska> 
+Alaskat® 
+
+Alaska5• 
+
+Alaska+¦ 
+
+Alaska/ì 
 
-Alaska„Ä 
+AlaskaŒ¿ 
+
+Alaska 	
+Alaska› 	
+Alaska8– 	
+Alaska%Ê 
+
+Alaska0Œ 
+
+AlaskaB 
+AlaskaŠ½ 
+
+Alaska6ƒ 	
+Alaska 
+AlaskaJ 
+Alaskakç 
+
+Alaska%… 
+
+Alaska-q 	
+Alaska+q 	
+Alaska„ 	
+Alaskac§ 
 
 Alaska;ß 
 
 Alaskafå 
+
+AlaskaJ 
+Alaska)¢ 
 
-AlaskaBœ 	
-Alaska{² 
+Alaska+õ 
+
+AlaskaŒÁ 
 
+Alaska6À 
+
+Alaska6 	
+Alaska” 
+
+AlaskaS¬ 
+
+Alaska@¼ 
+
+AlaskaAÜ 
+
+Alaska|­ 
+
+Alaska– 	
+Alaska6 	
+Alaska.Ä 
+
+Alaskahå 
+
+Alaska8• 	
+Alaska9 
+Alaska¼ 
+
+Alaska;Ş 
+
+Alaska*• 	
+Alaska&ƒ 
+
+AlaskaL 
+Alaska: 
+Alaskaw 	
+Alaskau® 
+
+Alaska6• 	
 Alaskaj® 
+
+Alaska*ô 
+
+Alaska+ï 
+
+Alaska-ö 
+
+AlaskaŒÃ 
+
+Alaska6® 
+
+Alaska†¹ 
 
-Alaskas 	
-Alaskaw 	
-AlaskaJ 
-Alaska-– 
+Alaska> 
+Alaskar® 
+
+Alaska+¢ 
+
+Alaska=° 
+
+Alaska%„ 
+
+Alaska+š 
+
+Alaska7’ 
+
+Alaska 	
+AlaskaP¬ 
+
+Alaska}´ 
+
+Alaska=˜ 	
+Alaska+ô 
+
+Alaska” 
 
-AlaskaL 
-Alaska< 
-Alaskagª 
-
-Alaska1¨ 
-
-Alaska# 
-Alaska” 	
-Alaska+› 
-
-Alaska5¿ 
-
-Alaskakç 
-
-Alaska`¦ 
-
-Alaskajç 
-
-Alaska  
-Alaska3s 	
-Alaska? 
-AlaskaL 
-Alaska`å 
-
-Alaska‹ 	
-Alaska.í 
-
+Alaskaq 	
 Alaska
 A 
-Alaska3Œ 
+Alaskag¬ 
 
-Alaska$˜ 	
-Alaska'‹ 
+Alaska4– 	
+AlaskaWá 
 
-Alaska/— 
-
-Alaskav® 
-
-Alaskan® 
-
-Alaska*ï 
-
-Alaska" 
-AlaskaŠ½ 
-
-Alaska; 
-Alaska> 
-Alaska?š 	
+Alaska6ˆ 	
+Alaska9 
 Alaska– 	
-AlaskaA 	
-Alaska=¹ 
+Alaskatª 
 
-Alaska 	
-Alaska`ä 
+AlaskaR¬ 
+
+Alaskao® 
+
+Alaskap© 
+
+AlaskaL¸ 
 
-Alaska 
-Alaska6‘ 	
-AlaskaJ 
-Alaska4– 	
-Alaska†¸ 
+AlaskaH 
+Alaska š 	
+Alaska=» 
+
+Alaska'ò 
+
+Alaska0¨ 
+
+Alaska'Š 
+
+Alaska< 
+Alaska8á 
 
 Alaskaq© 
 
+Alaska‹ 	
+Alaska'ğ 
+
+Alaska3À 
+
+AlaskaI 
+Alaska8® 
+
+AlaskaH 
+Alaskai® 
+
+Alaska<° 
+
+Alaska3Œ 
+
+Alaska}¬ 
+
+AlaskaJ 
+Alaska"š 	
+Alaskaƒ 	
+Alaskas® 
+
+Alaska9 
+Alaska(  
+
+Alaska?› 	
+Alaska@˜ 	
+AlaskaH² 
+
 Alaska+™ 
-
-Alaskaaå 
-
-Alaskaš 	
-Alaska*” 	
-AlaskaH 
-Alaska#† 
-
-Alaska¡ 	
-Alaska0— 
-
-Alaska” 
-
-Alaskahå 
 
-Alaska" 
-Alaska4ã 
+AlaskaA 
+Alaska 
+Alaskag© 
+
+AlaskaM¶ 
 
-Alaska< 
-Alaska” 
+AlaskaF 
+Alaska” 
 
-Alaska4À 
+Alaska`¦ 
 
-Alaska<» 
+Alaska6‹ 	
+Alaska6{ 	
+AlaskaM³ 
+
+Alaska0s 	
+Alaskaiå 
 
-Alaska+¢ 
-
-Alaska†¹ 
+Alaska?œ 	
+Alaska7 
+Alaska\ã 
+
+Alaska 
+Alaskao© 
 
-Alaska>° 
+AlaskaC¶ 
+
+Alaska6t 	
+Alaska7Á 
+
+Alaska< 
+Alaskagª 
 
-AlaskaDŸ 	
+Alaska+› 
+
+AlaskaI· 
+
+Alaska6Š 	
+Alaska7– 	
+Alaska†¸ 
+
+Alaska.í 
+
+Alaska,Œ 
+
+Alaska7â 
+
+Alaska0ç 
+
+Alaska 
+Alaska6 	
+AlaskaI 
+Alaskag« 
+
+Alaska{² 
+
+Alaska`å 
+
+Alaskabå 
+
+Alaska0Ã 
+
+Alaska>¾ 
+
+Alaska6} 	
+Alaska 
+AlaskaJ° 
+
+AlaskaTá 
+
+Alaskan® 
+
+Alaska)q 	
+Alaskam® 
+
+Alaska3s 	
+Alaska$… 
+
+Alaska/í 
+
+Alaska‚ 	
+Alaska6† 	
+Alaskalç 
+
+Alaska1s 	
+Alaska$˜ 	
+Alaska%o 	
 Alaska1ı 
 
-Alaska) 
+AlaskaW¨ 
 
-Alaska8À 
+Alaska&– 	
+Alaska-Œ 
+
+Alaska1’ 	
+Alaska,q 	
+Alaska6v 	
+AlaskaI 
+AlaskaD 
+Alaska! 
+Alaska=¹ 
+
+Alaska† 	
+Alaska9à 
+
+Alaskaw 	
+Alaska+¤ 
+
+AlaskaJ 
+Alaska<» 
+
+Alaska5– 	
+Alaska[© 
+
+Alaskao 	
+Alaska9á 
+
+Alaska^ã 
+
+Alaskaa¦ 
+
+Alaska3Ä 
+
+Alaska{¯ 
+
+Alaska(ï 
+
+Alaska"P 
+Alaska9– 	
+Alaska6“ 	
+Alaskaˆ½ 
+
+AlaskaŒÂ 
+
+Alaska)¡ 
+
+AlaskaI¹ 
+
+Alaska6’ 	
+Alaskaz 	
+AlaskaDŸ 	
+Alaska9 
+Alaska*› 
+
+Alaska*ï 
+
+Alaska 
+Alaska 	
+AlaskaA™ 	
+Alaskag¨ 
+
+AlaskaG 
+Alaska” 	
+Alaska‚¾ 
+
+Alaska0’ 	
+Alaska>— 	
+Alaska" 
+Alaska6z 	
+Alaska!O 
+Alaska'– 	
+Alaska-÷ 
+
+Alaskan¨ 
+
+Alaska2s 	
+Alaska4À 
+
+Alaska; 
+Alaska,— 
+
+Alaskaš 	
+Alaska! 
+Alaska‹ 	
+Alaskah® 
+
+Alaska7 
+
+Alaska 	
+Alaska M 
+Alaska^§ 
+
+Alaska‚± 
+
+Alaska7¿ 
+
+AlaskaF´ 
+
+AlaskaH 
+Alaska— 	
+Alaska2• 
+
+Alaska'ƒ 
+
+Alaska0 
+
+Alaska2Ä 
+
+Alaska#… 
+
+AlaskaL¶ 
+
+Alaska'Œ 
+
+Alaska6¯ 
+
+Alaska	$ 
+Alaska% 
+AlaskaSá 
+
+Alaskagä 
+
+Alaska1ÿ 
+
+Alaska,ö 
+
+Alaska+î 
+
+Alaska7‘ 
+
+Alaska:– 	
+Alaska-© 
+
+Alaska3¨ 
+
+Alaska† 	
+Alaska6‡ 	
+Alaska
+< 
+AlaskaB¹ 
+
+Alaska0— 
+
+AlaskaL 
+Alaska=¸ 
+
+Alaska&š 	
+Alaska(q 	
+Alaska?³ 
+
+Alaska 
+AlaskaZá 
+
+Alaska6¿ 
+
+AlaskaŒÀ 
+
+Alaska4s 	
+AlaskaB 
+Alaska!P 
+Alaska/û 
+
+Alaska…Ä 
+
+AlaskaNß 
+
+Alaska(Œ 
+
+Alaska/Œ 
+
+Alaska
+ 
+AlaskaHİ 
+
+Alaska7“ 
+
+Alaskay° 
+
+Alaskajç 
+
+Alaska)ï 
+
+Alaska# 
+AlaskaG 
+Alaskav® 
+
+Alaska@ 
+AlaskaH 
+AlaskaV¨ 
+
+Alaskap® 
+
+Alaskaˆ¼ 
+
+Alaska> 
+Alaska]ã 
+
+Alaska=º 
+
+Alaska6” 	
+Alaskaƒ 	
+Alaska.“ 	
+AlaskaŠÄ 
+
+Alaska  
+Alaska6… 	
+Alaskae¨ 
+
+Alaska— 	
+Alaska@İ 
+
+Alaska}µ 
+
+Alaskan© 
+
+AlaskaEŸ 	
+Alaska~¬ 
+
+Alaskat« 
+
+Alaskaƒ¾ 
+
+Alaskav­ 
+
+Alaskaº 
+
+Alaska 	
+Alaska_¦ 
+
+Alaska!š 	
+Alaskaœ 	
+Alaska 	
+Alaska6y 	
+AlaskaX¨ 
+
+Alaska3• 
+
+Alaska`ä 
+
+Alaska‹ 	
+AlaskaB 	
+Alaska2¨ 
+
+AlaskaˆÄ 
+
+Alaskab¦ 
+
+Alaska6€ 	
+Alaska9 
+Alaska1— 
+
+AlaskaKµ 
+
+Alaskaw® 
+
+AlaskaŸ 	
+Alaska*¢ 
+
+Alaskac¦ 
+
+Alaska*q 	
+AlaskaBœ 	
+Alaska\â 
+
+Alaska9½ 
+
+Alaska1Ã 
+
+Alaskag­ 
+
+Alaska" 
+Alaska 	
+Alaska%¨ 
+
+AlaskaUá 
+
+Alaska5À 
+
+Alaska?² 
+
+Alaska1ü 
+
+Alaska9• 	
+Alaska 
+Alaska6– 	
+Alaska>° 
+
+Alaska$o 	
+Alaska!o 	
+Alaska~­ 
+
+Alaskaz 	
+Alaskaf¨ 
+
+Alaska( 
+
+Alaska}­ 
+
+Alaskas 	
+Alaska  
+Alaska{ 	
+Alaska
+B 
+Alaska• 
+
+Alaska*Œ 
+
+Alaskaaå 
+
+Alaska9 
+Alaska$ 
+Alaska 	
+AlaskaBº 
+
+Alaska+€ 
+
+Alaska o 	
+Alaska7• 	
+Alaska6~ 	
+Alaskal® 
+
+Alaska;° 
+
+Alaska„µ 
+
+AlaskaF 
+Alaska0ÿ 
+
+Alaskagå 
+
+Alaska7À 
+
+Alaska1ş 
+
+AlaskaE 
+Alaska6u 	
+Alaska[¨ 
+
+Alaska3Á 
+
+Alaska  	
+Alaska1æ 
+
+Alaska„Ä 
+
+AlaskaJ 
+Alaska6 	
+Alaska$¨ 
+
+Alaska:ß 
+
+Alaska+¥ 
+
+Alaska  
+Alaska&É 
+
+Alaska
+$ 
+Alaskaeå 
+
+AlaskaH 
+AlaskaVá 
+
+Alaska?± 
+
+Alaska6ã 
+
+AlaskaA 	
+Alaska%É 
+
+Alaska6w 	
+Alaskap 	
+Alaska5ã 
 
-Michigan”ñ 
+Michigan³ 	
+Michigan‰ø 
 
-Michigan’ú 
+Michiganë 
 
-Michigan‚² 	
-MichiganŒé 
-
-Michigan€´ 	
-MichiganC[ 
 Michigan’î 
+
+Michigan‰ù 
+
+Michigan”ö 
+
+Michiganƒå 
+
+Michigan‡ì 
+
+Michigan†ì 
+
+Michigan‚³ 	
+Michigan‡å 
+
+MichiganC] 
+Michiganë 
+
+MichiganD\ 
+Michigan‰ç 
+
+Michigan…» 	
+Michiganˆæ 
+
+Michigan‰ú 
 
 MichiganŠñ 
 
-Michiganê 
+Michigan‰¼ 	
+Michigan‹ğ 
+
+Michigan•õ 
+
+MichiganC^ 
+Michigan‘ü 
+
+Michigan”ò 
+
+Michigan‰õ 
 
 Michigan“ï 
 
-Michigan‚å 
-
-Michigan‘í 
-
-Michigan…¶ 	
-Michigan‰÷ 
-
-MichiganC\ 
-Michigan‘ü 
-
+Michigan…¼ 	
 Michiganì 
 
 Michiganü 
 
-Michiganí 
-
-Michigan‡í 
-
-Michiganƒ³ 	
-Michigan”ó 
+Michigan”÷ 
 
 Michigan‰û 
 
-Michigan„¶ 	
-Michigan‰ô 
-
-Michiganƒå 
-
-Michiganˆæ 
-
-Michiganü 
-
-Michigan…º 	
-MichiganŒè 
-
-Michigan‹ñ 
-
-Michigan‰ø 
-
-Michigan‰ù 
-
-Michigan”ø 
-
-Michigan”ò 
-
-Michigan‰ç 
-
-Michigan³ 	
-MichiganD] 
-Michigan”õ 
-
-Michiganë 
-
-Michigan”ô 
-
-Michiganˆ½ 	
-MichiganAZ 
-Michigan†å 
-
-MichiganD\ 
-Michigan”ö 
-
-Michigané 
-
-MichiganC] 
-Michiganˆç 
-
-Michigan‰ö 
-
-Michigan†µ 	
-Michigan‰ó 
-
-MichiganBZ 
-Michigan”÷ 
-
-Michigan•õ 
-
-Michigan‰¼ 	
-Michigan´ 	
-Michiganë 
-
-Michiganæ 
-
-Michigan…¹ 	
-MichiganC^ 
-Michigan…» 	
-Michigan’ï 
-
-Michigan’û 
+Michigan‚å 
 
 Michiganˆ¼ 	
-Michiganç 
+Michigan‘í 
 
-Michigan‹ğ 
+Michigan’ú 
 
-MichiganŠç 
+Michiganí 
 
-Michigan…½ 	
-Michigan‚³ 	
-Michigan‹î 
+Michiganˆ· 	
+Michigan‰ô 
+
+Michiganˆç 
+
+Michigan‰ó 
 
 Michigan‹ï 
 
-Michiganƒê 
+Michigan”ô 
 
-Michigan‰ú 
+Michiganü 
 
-Michigan…¼ 	
-Michigan†ì 
+Michigan†µ 	
+Michigan‰ö 
 
-Michiganƒä 
+Michigan…½ 	
+MichiganC\ 
+Michigan”ñ 
 
-Michigan‰õ 
+MichiganŠç 
 
-Michigan”ğ 
+Michigan‡í 
 
-Michigan‡ì 
+Michigan’û 
 
 Michigan‚ê 
 
-Michigan‡å 
+Michigan”ğ 
 
-Michiganˆ· 	
-Arkansas~É 	
-Arkansasõ› 
+Michigan‰÷ 
 
-Arkansasô‘ 
-
-Arkansas}É 	
-Arkansas~Ê 	
-Arkansas÷‘ 
+Michiganƒ³ 	
+Michigan’ï 
 
-Arkansasş” 
+Michiganˆ½ 	
+Michigan†å 
 
-Arkansasö‘ 
-
-ArkansaszÌ 	
-Arkansasú‘ 
+Michigan…º 	
+MichiganBZ 
+MichiganŒé 
 
-Arkansasõš 
+Michigan„¶ 	
+Michigan”ó 
 
-Arkansasş“ 
-
-Arkansas{Ì 	
-ArkansaszÉ 	
-Arkansas>f 
-Arkansasø‘ 
+Michigan…¶ 	
+Michigan‹î 
+
+Michiganƒê 
+
+MichiganD] 
+MichiganC[ 
+Michiganƒä 
+
+Michigan´ 	
+MichiganŒè 
+
+Michiganê 
+
+Michigan…¹ 	
+Michiganç 
+
+Michigan‚² 	
+Michigan€´ 	
+Michigan”õ 
+
+Michigané 
+
+Michigan”ø 
+
+Michiganæ 
+
+MichiganAZ 
+Michigan‹ñ 
+
+Arkansası‘ 
 
 Arkansasü— 
+
+Arkansasù‘ 
 
 Arkansas{É 	
-Arkansasü˜ 
-
 Arkansasş• 
-
-Arkansas>e 
-Arkansas{Í 	
-Arkansası– 
 
-Arkansas|É 	
+Arkansas{Í 	
+Arkansas{Ì 	
+Arkansasş“ 
+
+Arkansası– 
+
+Arkansasô‘ 
+
 Arkansasû‘ 
 
+Arkansasõ› 
+
+Arkansas}É 	
+Arkansas>e 
+Arkansasõš 
+
+Arkansas~Ê 	
+Arkansasú‘ 
+
 Arkansasü– 
+
+Arkansas~É 	
+Arkansas>f 
+Arkansas=e 
+Arkansasü˜ 
 
 Arkansasõ‘ 
 
-Arkansasù‘ 
-
-Arkansas=e 
-Arkansası‘ 
+Arkansasø‘ 
 
 Arkansasü‘ 
-
-Mississippi„— 
+
+Arkansas÷‘ 
+
+Arkansasö‘ 
+
+ArkansaszÉ 	
+Arkansas|É 	
+ArkansaszÌ 	
+Arkansasş” 
 
 MississippiĞ 	
-Mississippiı¢ 
-
-MississippiË 	
-Mississippiƒ¤ 
-
-MississippiÏ 	
-Mississippi¢ 
-
-Mississippiı¡ 
-
-MississippiÑ 	
-Mississippi€¢ 
-
-Mississippi€Ğ 	
 Mississippiıš 
 
-MississippiĞ 	
-Mississippiş¢ 
-
-Mississippiÿ¢ 
-
-MississippiÌ 	
-Mississippi@g 
-Mississippi„– 
-
-MississippiÎ 	
-Mississippiü¢ 
-
-MississippiÍ 	
-Mississippi@f 
-Mississippi£ 
-
-Mississippiı  
+Mississippi¢ 
 
 Mississippiÿ— 
 
-Mississippi€Ë 	
+Mississippi„— 
+
+Mississippiı¢ 
+
+MississippiÎ 	
+Mississippi@g 
+Mississippi@f 
+Mississippiş¢ 
+
+MississippiË 	
+Mississippiı¡ 
+
 Mississippi‚¤ 
-
+
+MississippiÏ 	
+Mississippiÿ¢ 
+
+MississippiÑ 	
+MississippiÍ 	
+Mississippi£ 
+
+MississippiĞ 	
+MississippiÌ 	
+Mississippiı  
+
+Mississippi€Ğ 	
+Mississippi€Ë 	
+Mississippi€¢ 
+
+Mississippiü¢ 
+
+Mississippi„– 
+
+Mississippiƒ¤ 
+
+MissourizÁ 	
+Missouri{Á 	
+Missouri=b 
+Missourió‚ 
+
+Missouri>b 
+Missouri~Ä 	
 Missouri€ 
+
+Missourió 
 
 Missouriû… 
 
-Missourió 
-
-MissourizÁ 	
-Missouriú… 
-
-Missouri|Ã 	
-Missourió„ 
-
-MissourióŒ 
-
-Missouriú„ 
-
-Missouri>c 
-Missouri|Á 	
-Missouriü† 
-
-Missouri=b 
-Missouriü‡ 
-
 Missourió… 
 
-Missouriúƒ 
-
-Missouri~Å 	
-Missourióƒ 
-
-Missouri{Á 	
-Missouri?c 
-Missourişˆ 
-
-Missouri€ 
-
-Missouri>b 
-Missouri€ 
+Missourió 
 
 Missouriş‹ 
 
 Missouriú‚ 
 
-Missouriñ‚ 
-
-Missouri}Ã 	
-Missouri=a 
-Missourió 
+Missouri€ 
 
-Missouri=c 
-Missouri|Â 	
-Missouri€ 
+Missouri=a 
+Missouri€ 
+
+Missouriü‡ 
 
-Missouri~Ä 	
+Missouri|Â 	
+Missouri?c 
+Missouri~Å 	
+Missouri=c 
+Missouri|Á 	
 Missouriò‚ 
 
-Missourió‚ 
+Missouriúƒ 
 
-Missourió 
+MissourióŒ 
 
-MontanaÖå 
+Missouri|Ã 	
+Missouriñ‚ 
+
+Missouriú… 
+
+Missourió 
 
-Montanaj± 	
+Missouri>c 
+Missouriü† 
+
+Missouri}Ã 	
+Missourióƒ 
+
+Missourişˆ 
+
+Missourió„ 
+
+Missouri€ 
+
+Missouriú„ 
+
 Montana¹æ 
 
-Montana»ì 
-
-Montanaj² 	
-Montana»ê 
-
-Montanaj³ 	
-Montana½ì 
-
-Montana¹ç 
+Montana¿ğ 
 
-Montana 
+Montana4Z 
+Montana/Y 
+MontanaÖï 
+
+Montana\² 	
+Montana]³ 	
+Montana]² 	
+Montana4Y 
+Montana/Z 
+MontanaÁñ 
+
+Montanaj· 	
 MontanaÀğ 
 
+Montana·á 
+
+MontanaÖà 
+
+Montana4[ 
 MontanaÖì 
 
-MontanaÖã 
+Montana»é 
 
-Montana]² 	
-Montana·ã 
-
-Montana/X 
-MontanaÂğ 
-
-Montana4X 
-MontanaÖë 
-
+Montanaj² 	
 Montana·ä 
-
-Montanaºè 
-
-MontanaÖæ 
 
-Montana_¶ 	
-Montana]³ 	
-MontanaÖà 
-
+Montanaj³ 	
 MontanaÖâ 
-
-Montanaj° 	
-Montana4Z 
-MontanaÖê 
-
-Montana¿ğ 
-
-Montana½î 
-
-MontanaÖï 
-
-MontanaÖé 
-
-Montana·â 
 
 Montana»ë 
 
-Montana»è 
+Montana»ì 
+
+MontanaÁğ 
+
+Montana½î 
+
+Montana·â 
 
 MontanaÖä 
-
-Montana4Y 
-Montana/Y 
-Montana\² 	
-Montana4[ 
-Montana·à 
-
-Montanaj¶ 	
-Montanajµ 	
-Montana¼ì 
 
-MontanaÖè 
-
-Montana/Z 
+Montanaºè 
+
+Montanaj± 	
+Montanaj° 	
+Montana¹ç 
+
+MontanaÖæ 
+
 MontanaÖî 
+
+MontanaÖë 
+
+MontanaÂğ 
+
+Montana½ì 
+
+Montana¾ğ 
 
 MontanaÖí 
 
-Montana½í 
-
-Montana_· 	
+MontanaÖê 
+
+Montana.X 
+Montanaj´ 	
+Montanaj¶ 	
+Montanajµ 	
+Montana4X 
+MontanaÖå 
+
+Montana»è 
+
+Montana·à 
+
 MontanaÖá 
 
 MontanaÖç 
 
-Montana·á 
-
-MontanaÁñ 
-
-Montanaj´ 	
-Montana»é 
-
-Montana¾ğ 
-
-Montana.X 
-Montanaj· 	
 Montana¿ñ 
 
-MontanaÁğ 
+Montana¼ì 
+
+MontanaÖè 
+
+Montana·ã 
 
+Montana_· 	
+Montana_¶ 	
+MontanaÖé 
+
+MontanaÖã 
+
+Montana»ê 
+
+Montana/X 
+Montana 
+Montana½í 
+
+KansasxÆ 	
+KansasoÃ 	
+KansasrÆ 	
+Kansas8a 
+Kansasñ‡ 
+
+Kansas:b 
 Kansasğ… 
-
-KansasqÆ 	
-Kansasğ† 
-
-KansastÆ 	
-Kansas8a 
-KansaswÆ 	
+
+Kansas;b 
+Kansas9a 
 Kansasğ„ 
 
-KansassÆ 	
-Kansas9b 
-KansasoÂ 	
-KansasoÃ 	
-Kansas;b 
-Kansasğ‡ 
-
-KansasoÄ 	
+KansasuÆ 	
+KansasoÆ 	
+Kansas8b 
+KansaswÆ 	
 KansasxÄ 	
 Kansas:a 
-KansasvÆ 	
-KansasxÆ 	
 KansasxÅ 	
-KansasoÆ 	
-Kansas;a 
-Kansas9a 
-KansasuÆ 	
-Kansasñ‡ 
-
-KansasrÆ 	
-Kansas:b 
-Kansas8b 
+KansasoÄ 	
+Kansasğ‡ 
+
+Kansasğ† 
+
+Kansas;a 
+KansassÆ 	
+KansasvÆ 	
+KansaspÆ 	
+KansastÆ 	
 KansasoÅ 	
-KansaspÆ 	
-IndianaŠˆ 
-
-IndianaŠ‰ 
-
-Indiana†Ã 	
-Indiana†Á 	
-IndianaB` 
-Indiana‡‰ 
+KansasqÆ 	
+KansasoÂ 	
+Kansas9b 
+Indiana„Ä 	
+Indiana‹ˆ 
 
 IndianaBa 
+Indiana†¿ 	
+Indiana†Ã 	
+Indiana†À 	
+Indiana†Á 	
+Indiana„¿ 	
+IndianaŠˆ 
+
 Indiana†Â 	
+Indiana‡‰ 
+
+Indiana…¿ 	
+IndianaB` 
 Indiana‡Š 
 
-Indiana„Ä 	
-Indiana…¿ 	
-Indiana†¿ 	
-Indiana†À 	
-Indiana‹ˆ 
-
-Indiana„¿ 	
-Puerto RicoÁË 
+IndianaŠ‰ 
 
-Puerto RicoÃË 
+Puerto RicoÁË 
 
 Puerto RicoÂË 
 
-South Dakotamº 	
-South Dakotaq· 	
-South Dakotam¹ 	
+Puerto RicoÃË 
+
+South Dakotam¸ 	
 South Dakotaìô 
 
-South DakotaÙî 
-
-South Dakotaìğ 
+South Dakotaâí 
+
+South Dakota7\ 
+South Dakotaáí 
 
-South Dakotas· 	
-South DakotaÚí 
-
-South Dakotaçí 
-
-South Dakotaäí 
-
+South Dakotamº 	
+South Dakotaåí 
+
+South Dakotat· 	
 South DakotaŞí 
 
-South Dakotaßí 
-
+South Dakotaìñ 
+
+South Dakota:\ 
+South DakotaÙí 
+
+South Dakotam· 	
 South Dakotaìï 
 
-South Dakotaİí 
-
-South Dakotam» 	
-South Dakotaáí 
-
-South DakotaÙó 
-
-South Dakota. 
-South DakotaÙí 
+South DakotaÙï 
 
 South DakotaÙö 
 
-South Dakotaêí 
+South DakotaÙõ 
 
-South Dakotaëí 
-
-South Dakotar· 	
-South DakotaÙñ 
+South DakotaÙ÷ 
+
+South Dakota:] 
+South Dakotaìó 
+
+South DakotaÙğ 
+
+South Dakota7] 
+South Dakotaìö 
 
 South Dakotaì÷ 
 
-South DakotaÙğ 
-
-South Dakotam· 	
-South Dakota:] 
-South DakotaÙò 
-
-South Dakota:\ 
+South Dakotaìø 
+
+South Dakotaßí 
+
 South Dakotaéí 
 
-South Dakotaìõ 
+South Dakotaàí 
 
+South Dakotaãí 
+
+South Dakotaİí 
+
+South Dakotam¹ 	
+South Dakotau· 	
+South DakotaÙó 
+
+South Dakotao· 	
+South Dakotas· 	
+South Dakotaìğ 
+
+South Dakotam» 	
+South Dakotaæí 
+
+South Dakota. 
 South DakotaÛí 
 
-South Dakotau· 	
+South Dakotan· 	
+South DakotaÜí 
+
+South Dakotaìõ 
+
+South Dakotar· 	
+South Dakotaìò 
+
+South Dakotaq· 	
+South Dakotaäí 
+
+South DakotaÙñ 
+
+South DakotaÚí 
+
+South Dakotap· 	
+South Dakotaëí 
+
+South DakotaÙò 
+
+South Dakotaêí 
+
 South Dakotaèí 
 
-South Dakotaâí 
-
-South Dakotaåí 
+South Dakotaçí 
 
 South DakotaÙô 
 
-South Dakotaìø 
-
-South DakotaÜí 
-
-South Dakotaàí 
-
-South Dakota7\ 
-South Dakota7] 
-South Dakotao· 	
-South Dakotaæí 
-
-South Dakotaìó 
-
-South Dakotaìñ 
-
-South Dakotaãí 
-
-South Dakotat· 	
-South DakotaÙ÷ 
-
-South Dakotap· 	
-South Dakotan· 	
-South Dakotam¸ 	
-South DakotaÙï 
-
-South Dakotaìò 
-
-South Dakotaìö 
-
-South DakotaÙõ 
-
-Massachusetts²ú 
+South DakotaÙî 
 
 Massachusetts´ú 
-
-Massachusetts°ú 
-
-Massachusetts¶ü 
-
-Massachusettsµú 
 
 Massachusetts·ü 
 
 Massachusetts¶ı 
 
+Massachusettsµú 
+
+Massachusetts¶ü 
+
+Massachusetts²ú 
+
 Massachusetts±ú 
+
+Massachusetts°ú 
 
 Massachusetts³ú 
 
-Virginia¦ 
+Virginia‹ 
 
 VirginiaŸ‰ 
 
-Virginia¦ 
-
-Virginia˜ 
-
 VirginiaÅ 	
-Virginia¢‰ 
+Virginia¢ˆ 
+
+Virginia¦ 
+
+VirginiaÄ 	
+Virginia™ 
 
 VirginiaÅ 	
 Virginia— 
 
-Virginia“Æ 	
-Virginia™ 
+Virginia’Æ 	
+Virginia˜ 
 
-VirginiaGc 
-Virginia¤‹ 
-
-Virginia‹ 
-
+VirginiaGc 
 VirginiaHc 
-VirginiaÇ 	
-Virginia£ˆ 
-
-Virginia’Ç 	
 Virginia¢‡ 
 
-Virginia¥‹ 
+Virginia¦ 
 
-Virginia– 
+Virginia’Ç 	
+Virginia£ˆ 
 
 Virginia‘Å 	
-Virginia’Æ 	
-VirginiaÄ 	
-Virginia¢ˆ 
-
-Iowañ÷ 
-
-Iowaõ÷ 
-
-Iowaıû 
-
-Iowaó€ 
-
-Iowağ€ 
-
-Iowaô÷ 
-
-Iowaïú 
-
-Iowaö÷ 
-
-Iowaò€ 
-
-Iowaüû 
-
-Iowaø÷ 
-
-Iowaû€ 
-
-Iowaw¼ 	
-Iowa÷€ 
-
-Iowaõ€ 
+Virginia¤‹ 
+
+VirginiaÇ 	
+Virginia¥‹ 
+
+Virginia“Æ 	
+Virginia¢‰ 
+
+Virginia– 
 
 Iowa~¾ 	
-Iowaú€ 
-
-Iowaù€ 
-
-Iowa/ 
-Iowa÷÷ 
-
-Iowaò÷ 
-
 Iowaïû 
-
-Iowaïü 
-
-Iowa>_ 
-Iowaú÷ 
-
-Iowaó÷ 
 
 Iowaö€ 
 
-Iowaï÷ 
+Iowaïü 
 
 Iowaüú 
 
-Iowañ€ 
+Iowaû€ 
 
 Iowaô€ 
 
-Iowa>^ 
-Iowağ÷ 
+Iowa>_ 
+Iowaò€ 
 
-Iowaù÷ 
+Iowañ€ 
+
+Iowaú€ 
+
+Iowa÷÷ 
+
+Iowa>^ 
+Iowaû÷ 
+
+Iowaù€ 
 
 Iowaø€ 
 
-Iowaû÷ 
+Iowaõ€ 
+
+Iowaó÷ 
+
+Iowağ÷ 
+
+Iowaıû 
+
+Iowaô÷ 
 
 Iowaî÷ 
-
-ArizonaÅ 
-
-ArizonaÈ— 
-
-ArizonaÈ‘ 
-
-ArizonaÈ• 
-
-Arizona/e 
-ArizonaÈœ 
-
-ArizonaÆ  
-
-Arizona½ 
-
-ArizonaÃ 
-
-ArizonaÈ˜ 
-
-Arizona2 
-Arizona/f 
-ArizonaÇ  
-
-ArizonaÆ 
-
-ArizonaÄ  
+
+Iowaïú 
+
+Iowaú÷ 
+
+Iowaö÷ 
+
+Iowaò÷ 
+
+Iowaüû 
+
+Iowaõ÷ 
+
+Iowaw¼ 	
+Iowa/ 
+Iowaó€ 
+
+Iowa÷€ 
+
+Iowaï÷ 
+
+Iowaø÷ 
+
+Iowañ÷ 
+
+Iowaù÷ 
+
+Iowağ€ 
 
 ArizonaÈ 
 
-Arizona½ 
+Arizona¿Ÿ 
 
-ArizonaÄ 
+ArizonaÈ• 
 
-Arizona»” 
+ArizonaÈ— 
 
-Arizona¿ 
+ArizonaÇ 
+
+Arizona3 
+ArizonaÈ‘ 
 
 ArizonaÂ 
 
-ArizonaÂ  
+ArizonaÈš 
 
-Arizona¾ 
-
-ArizonaÈ› 
-
-Arizona3 
-Arizona_Î 	
-Arizona^Î 	
-ArizonaÈ  
+ArizonaÀ 
 
 Arizona¼ 
 
-ArizonaÁ 
+Arizona¾ 
+
+Arizona_Î 	
+Arizona»œ 
 
-ArizonaÇ 
-
-ArizonaÈ– 
-
-ArizonaÈŸ 
-
-Arizona»š 
-
-ArizonaÈš 
-
-ArizonaÈ” 
+Arizona½ 
 
 Arizona»™ 
 
-Arizona»œ 
+Arizona»” 
 
-Arizona»– 
+ArizonaÂ  
 
-ArizonaÈ’ 
-
-Arizona¿Ÿ 
-
-ArizonaÃ  
-
-Arizona¿ 
-
-ArizonaÈ™ 
-
-Arizona»“ 
-
-ArizonaÈ 
-
-ArizonaÈ“ 
-
-Arizona»• 
-
-Arizona/d 
-ArizonaÀ 
-
-Arizona¾ 
-
-ArizonaÅ  
-
-ArizonaÈ 
+ArizonaÈ  
 
 Arizona» 
 
+ArizonaÃ  
+
+Arizona2 
+ArizonaÄ 
+
+ArizonaÈ™ 
+
+ArizonaÈ– 
+
+ArizonaÈ› 
+
+Arizona¾ 
+
+Arizona»– 
+
+ArizonaÄ  
+
+ArizonaÇ  
+
+ArizonaÈ 
+
+Arizona»š 
+
+Arizona/f 
+ArizonaÈœ 
+
+ArizonaÆ 
+
+ArizonaÈ˜ 
+
+Arizona»• 
+
+Arizona¿ 
+
 ArizonaÈ 
 
+Arizona¿ 
+
+ArizonaÈ’ 
+
+ArizonaÅ 
+
+Arizona»“ 
+
+ArizonaÅ  
+
+ArizonaÃ 
+
+Arizona/e 
+Arizona½ 
+
+ArizonaÈ” 
+
+ArizonaÁ 
+
+ArizonaÈ 
+
 Arizona»› 
+
+ArizonaÆ  
+
+Arizona/d 
+ArizonaÈ“ 
+
+Arizona^Î 	
+ArizonaÈŸ 
